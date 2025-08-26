@@ -10,20 +10,17 @@
 ## PART ONE GETTING OFF TO A GOOD START
 
 * [Page 6](part-one-getting-off-to-a-good-start/page-6.md)
-
-***
-
-* [Page 7](page-7.md)
-* [Page 8](page-8.md)
-* [Page 9](page-9.md)
-* [Page 10](page-10.md)
-* [Page 11](page-11.md)
-* [Page 12](page-12.md)
-* [Page 13](page-13.md)
-* [Page 14](page-14.md)
-* [Page 15](page-15.md)
-* [Page 16](page-16.md)
-* [Page 17](page-17.md)
+* [Page 7](part-one-getting-off-to-a-good-start/page-7.md)
+* [Page 8](part-one-getting-off-to-a-good-start/page-8.md)
+* [Page 9](part-one-getting-off-to-a-good-start/page-9.md)
+* [Page 10](part-one-getting-off-to-a-good-start/page-10.md)
+* [Page 11](part-one-getting-off-to-a-good-start/page-11.md)
+* [Page 12](part-one-getting-off-to-a-good-start/page-12.md)
+* [Page 13](part-one-getting-off-to-a-good-start/page-13.md)
+* [Page 14](part-one-getting-off-to-a-good-start/page-14.md)
+* [Page 15](part-one-getting-off-to-a-good-start/page-15.md)
+* [Page 16](part-one-getting-off-to-a-good-start/page-16.md)
+* [Page 17](part-one-getting-off-to-a-good-start/page-17.md)
 
 ## &#x20;PART TWO GAINING INCREASED MOMENTUM
 

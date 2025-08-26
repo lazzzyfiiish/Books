@@ -1,51 +1,51 @@
 # Table of contents
 
-* [Untitled](README.md)
-* [Page 1](page-1.md)
-* [Page 2](page-2.md)
-* [Page 3](page-3.md)
-* [Page 4](page-4.md)
-* [Page 5](page-5.md)
+* [Copyright](README.md)
+* [Dedication](dedication.md)
+* [CONTENTS](contents.md)
+* [BRIEF INTERMISSIONS](brief-intermissions.md)
+* [HOW TO USE THIS BOOK FOR MAXIMUM BENEFIT](how-to-use-this-book-for-maximum-benefit.md)
+* [Disclaimer](disclaimer.md)
 
-## PART ONE GETTING OFF TO A GOOD START
+## GETTING OFF TO A GOOD START <a href="#part1" id="part1"></a>
 
-* [Page 6](part-one-getting-off-to-a-good-start/page-6.md)
-* [Page 7](part-one-getting-off-to-a-good-start/page-7.md)
-* [Page 8](part-one-getting-off-to-a-good-start/page-8.md)
-* [Page 9](part-one-getting-off-to-a-good-start/page-9.md)
-* [Page 10](part-one-getting-off-to-a-good-start/page-10.md)
-* [Page 11](part-one-getting-off-to-a-good-start/page-11.md)
-* [Page 12](part-one-getting-off-to-a-good-start/page-12.md)
-* [Page 13](part-one-getting-off-to-a-good-start/page-13.md)
-* [Page 14](part-one-getting-off-to-a-good-start/page-14.md)
-* [Page 15](part-one-getting-off-to-a-good-start/page-15.md)
-* [Page 16](part-one-getting-off-to-a-good-start/page-16.md)
-* [Page 17](part-one-getting-off-to-a-good-start/page-17.md)
+* [1](part1/1.md)
+* [2](part1/2.md)
+* [3](part1/3.md)
+* [Brief Intermission One](part1/brief-intermission-one.md)
+* [4](part1/4.md)
+* [Brief Intermission Two](part1/brief-intermission-two.md)
+* [5](part1/5.md)
+* [Brief Intermission Three](part1/brief-intermission-three.md)
+* [6](part1/6.md)
+* [Brief Intermission Four](part1/brief-intermission-four.md)
+* [7](part1/7.md)
+* [8](part1/8.md)
 
-## &#x20;PART TWO GAINING INCREASED MOMENTUM
+## GAINING INCREASED MOMENTUM <a href="#part2" id="part2"></a>
 
-* [Page 18](part-two-gaining-increased-momentum/page-18.md)
-* [Page 19](part-two-gaining-increased-momentum/page-19.md)
-* [Page 20](part-two-gaining-increased-momentum/page-20.md)
-* [Page 21](part-two-gaining-increased-momentum/page-21.md)
-* [Page 22](part-two-gaining-increased-momentum/page-22.md)
-* [Page 23](part-two-gaining-increased-momentum/page-23.md)
-* [Page 24](part-two-gaining-increased-momentum/page-24.md)
-* [Page 25](part-two-gaining-increased-momentum/page-25.md)
+* [9](part2/9.md)
+* [Brief Intermission Five](part2/brief-intermission-five.md)
+* [10](part2/10.md)
+* [Brief Intermission Six](part2/brief-intermission-six.md)
+* [11](part2/11.md)
+* [Brief Intermission Seven](part2/brief-intermission-seven.md)
+* [12](part2/12.md)
+* [13](part2/13.md)
 
-## &#x20;PART THREE FINISHING WITH A FEELING OF COMPLETE SUCCESS
+## FINISHING WITH A FEELING OF COMPLETE SUCCESS <a href="#part3" id="part3"></a>
 
-* [Page 26](part-three-finishing-with-a-feeling-of-complete-success/page-26.md)
-* [Page 27](part-three-finishing-with-a-feeling-of-complete-success/page-27.md)
-* [Page 28](part-three-finishing-with-a-feeling-of-complete-success/page-28.md)
-* [Page 29](part-three-finishing-with-a-feeling-of-complete-success/page-29.md)
-* [Page 30](part-three-finishing-with-a-feeling-of-complete-success/page-30.md)
-* [Page 31](part-three-finishing-with-a-feeling-of-complete-success/page-31.md)
-* [Page 32](part-three-finishing-with-a-feeling-of-complete-success/page-32.md)
-* [Page 33](part-three-finishing-with-a-feeling-of-complete-success/page-33.md)
-* [Page 34](part-three-finishing-with-a-feeling-of-complete-success/page-34.md)
-* [Page 35](part-three-finishing-with-a-feeling-of-complete-success/page-35.md)
+* [14](part3/14.md)
+* [Brief Intermission Eight](part3/brief-intermission-eight.md)
+* [15](part3/15.md)
+* [Brief Intermission Nine](part3/brief-intermission-nine.md)
+* [16](part3/16.md)
+* [Brief Intermission Ten](part3/brief-intermission-ten.md)
+* [17](part3/17.md)
+* [18](part3/18.md)
+* [19](part3/19.md)
+* [APPENDIX](part3/appendix.md)
 
-***
+## Other Books by This Author <a href="#end" id="end"></a>
 
-* [Page 36](page-36.md)
+* [Books by Norman Lewis](end/books-by-norman-lewis.md)

@@ -1,7 +1,7 @@
 # Table of contents
 
 * [Word Power Made Easy](README.md)
-* [Copyright](<README (1).md>)
+* [Copyright](copyright.md)
 * [Dedication](dedication.md)
 * [CONTENTS](contents.md)
 * [BRIEF INTERMISSIONS](brief-intermissions.md)

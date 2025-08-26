@@ -1,0 +1,422 @@
+# Page 32
+
+## 17 <a href="#page497" id="page497"></a>
+
+## HOW TO CHECK YOUR PROGRESS
+
+## _Comprehensive Test III_
+
+***
+
+### SESSION 47
+
+**I—etymology**
+
+| ROOT                   | MEANING                            |
+| ---------------------- | ---------------------------------- |
+|   1. _fluo_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   affluent     |                                    |
+|   2. _pheme_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   euphemism    |                                    |
+|   3. _platys_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   platitude    |                                    |
+|   4. _felis_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   feline       |                                    |
+|   5. _piscis_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   piscine      |                                    |
+|   6. _nostos_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   nostalgia    |                                    |
+|   7. _kakos_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   cacophony    |                                    |
+|   8. _carnis_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   carnivorous  |                                    |
+|   9. _voro_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   voracious    |                                    |
+| 10. _omnis_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   omnivorous   |                                    |
+| 11. _potens, potentis_ | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   impotent     |                                    |
+| 12. _ubique_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   ubiquity     |                                    |
+| 13. _lupus_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   lupine       |                                    |
+| 14. _doleo_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   dolorous     |                                    |
+| 15. _porcus_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   porcine      |                                    |
+| 16. _thanatos_         | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   euthanasia   |                                    |
+| 17. _canis_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   canine       |                                    |
+| 18. _vulpus_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   vulpine      |                                    |
+| 19. _algos_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   nostalgic    |                                    |
+| 20. _odyne_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   anodyne      |                                    |
+| 21. _logos_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   eulogy       |                                    |
+| 22. _sciens, scientis_ | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   omniscient   |                                    |
+| 23. _ursus_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   ursine       |                                    |
+| 24. _phone_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   euphonious   |                                    |
+| 25. _penuria_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   penury       |                                    |
+
+**II—more etymology**
+
+| ROOT, PREFIX              | MEANING                            |
+| ------------------------- | ---------------------------------- |
+|   1. _nervus_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   enervate        |                                    |
+|   2. _ergon_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   energy          |                                    |
+|   3. _nego_               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   negation        |                                    |
+|   4. _caput, capitis_     | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   decapitate      |                                    |
+|   5. _capitulum_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   recapitulate    |                                    |
+|   6. _vegeto_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   vegetate        |                                    |
+|   7. _simulo_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   simulate        |                                    |
+|   8. _similis_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   similarity      |                                    |
+|   9. _levis_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   alleviate       |                                    |
+| 10. _intimus_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   intimate (v.)   |                                    |
+| 11. _miser_               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   commiserate     |                                    |
+| 12. _vacillo_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   vacillate       |                                    |
+| 13. _ambi_-               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   ambivalent      |                                    |
+| 14. _oscillum_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   oscillate       |                                    |
+| 15. _sequor, secutus_     | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   obsequious      |                                    |
+| 16. _queror_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   querulous       |                                    |
+| 17. _cilium_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   supercilious    |                                    |
+| 18. _super_-              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   superior        |                                    |
+| 19. _strepo_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   obstreperous    |                                    |
+| 20. _pecus_               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   impecunious     |                                    |
+| 21. _equus_               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   equine          |                                    |
+| 22. _caballus_ (_caval_-) | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   cavalier        |                                    |
+| 23. _loquor, locutus_     | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   circumlocution  |                                    |
+| 24. _cado_                | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   decadence       |                                    |
+| 25. _vanesco_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| EXAMPLE   evanescent      |                                    |
+
+**III—same or opposite?**
+
+&#x20; 1\. penury—affluence
+
+SAME      OPPOSITE
+
+&#x20; 2\. vicarious—secondhand
+
+SAME      OPPOSITE
+
+&#x20; 3\. ephemeral—evanescent
+
+SAME      OPPOSITE
+
+&#x20; 4\. badinage—persiflage
+
+SAME      OPPOSITE
+
+&#x20; 5\. cacophony—euphony
+
+SAME      OPPOSITE
+
+&#x20; 6\. clandestine—surreptitious
+
+SAME      OPPOSITE
+
+&#x20; 7\. parsimonious—extravagant
+
+SAME      OPPOSITE
+
+&#x20; 8\. indigent—opulent
+
+SAME      OPPOSITE
+
+&#x20; 9\. destitute—impecunious
+
+SAME      OPPOSITE
+
+10\. euphemistic—indirect
+
+SAME      OPPOSITE
+
+11\. cliché—bromide
+
+SAME      OPPOSITE
+
+12\. platitudinous—original
+
+SAME      OPPOSITE
+
+13\. voracious—gluttonous
+
+SAME      OPPOSITE
+
+14\. omniscient—ignorant
+
+SAME      OPPOSITE
+
+15\. omnipresent—ubiquitous
+
+SAME      OPPOSITE
+
+16\. carnal—libidinous
+
+SAME      OPPOSITE
+
+17\. carnage—slaughter
+
+SAME      OPPOSITE
+
+18\. enervated—exhilarated
+
+SAME      OPPOSITE
+
+19\. castigate—condone
+
+SAME      OPPOSITE
+
+20\. simulate—pretend
+
+SAME      OPPOSITE
+
+**IV—matching**
+
+| WORDS                  | DEFINITIONS                       |
+| ---------------------- | --------------------------------- |
+|   1. alleviating       | a. excessively polite or servile  |
+|   2. cavalier (_adj._) | b. gaunt, corpselike              |
+|   3. vacillating       | c. noisy                          |
+|   4. obsequious        | d. poisonous                      |
+|   5. querulous         | e. highhanded                     |
+|   6. obstreperous      | f. sad                            |
+|   7. innocuous         | g. nagging; complaining           |
+|   8. cadaverous        | h. harmless                       |
+|   9. dolorous          | i. soothing                       |
+| 10. noxious            | j. constantly changing one’s mind |
+
+**V—more matching**
+
+| 1. condolence      | a. a rising into the air            |
+| ------------------ | ----------------------------------- |
+|   2. decadent      | b. harsh sound                      |
+|   3. levity        | c. powerlessness                    |
+|   4. levitation    | d. a return to life in a new form   |
+|   5. surreptitious | e. devouring all; eating everything |
+|   6. cacophony     | f. expression of sympathy           |
+|   7. reincarnation | g. cowlike; phlegmatic; stolid      |
+|   8. omnivorous    | h. morally deteriorating            |
+|   9. impotence     | i. joking                           |
+| 10. bovine         | j. stealthy; secret                 |
+
+**VI—recall a word**
+
+&#x20; 1\. lionlike
+
+&#x20; 1\. L\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. doglike
+
+&#x20; 2\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 3\. catlike
+
+&#x20; 3\. F\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. piglike
+
+&#x20; 4\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. foxlike
+
+&#x20; 5\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. bearlike
+
+&#x20; 6\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. horselike
+
+&#x20; 7\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. all-powerful
+
+&#x20; 8\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. in the flesh
+
+&#x20; 9\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. to stagnate
+
+10\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+11\. secret
+
+11\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+12\. meat-eating (_adj._)
+
+12\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+13\. lasting a very short time
+
+13\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+14\. stingy; tight-fisted
+
+14\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+15\. feeling contradictory ways at the same time (_adj._)
+
+15\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+16\. speech of praise
+
+16\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+17\. a feeling of well-being, both physical and emotional
+
+17\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+18\. statement intended to allay pain or anxiety
+
+18\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+19.mercy death
+
+19\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+20\. science of speech sounds
+
+20\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+21\. all-powerful
+
+21\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+22\. to give in; to stop resisting
+
+22\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+23\. a working together for greater effect
+
+23\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+24\. to behead
+
+24\. D\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+25\. relating to, pertaining to, or involving money (_adj._)
+
+25\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+26\. harmless
+
+26\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+27\. tending to drink a lot (_adj._)
+
+27\. B\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+28\. to express sympathy; to share suffering, pain, or grief (with)
+
+28\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+29\. snobbish; contemptuous; haughty; arrogant
+
+29\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+30\. mounted soldiers
+
+30\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  A correct answer counts one point. Score your points for each part of the test, then add for a total.
+
+***
+
+**I**
+
+1–to flow, 2–voice, 3–flat, broad, 4–cat, 5–fish, 6–a return, 7–harsh, bad, ugly, 8–flesh, 9–to devour, 10–all, 11–powerful, 12–everywhere, 13–wolf, 14–to suffer, grieve, 15–pig, 16–death, 17–dog, 18–fox, 19–pain, 20–pain, 21–word, speech, 22–knowing, 23–bear, 24–sound, 25–want, neediness
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**II**
+
+1–nerve, 2–work, 3–to deny, 4–head, 5–little head, chapter heading, 6–to live and grow, 7–to copy, 8–like, similar, 9–light, 10–innermost, 11–wretched, 12–to swing back and forth, 13–both, 14–a swing, 15–to follow, 16–to complain, 17–eyelid, 18–above, 19–to make a noise, 20–cattle, 21–horse, 22–(inferior) horse, 23–to speak, 24–to fall, 25–to vanish
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**III**
+
+1–O, 2–S, 3–S, 4–S, 5–O, 6–S, 7–O, 8–O, 9–S, 10–S, 11–S, 12–O, 13–S, 14–O, 15–S, 16–S, 17–S, 18–O, 19–O, 20–S
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**IV**
+
+1–i, 2–e, 3–j, 4–a, 5–g, 6–c, 7–h, 8–b, 9–f, 10–d
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**V**
+
+1–f, 2–h, 3–i, 4–a, 5–j, 6–b, 7–d, 8–e, 9–c, 10–g
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**VI**
+
+1–leonine, 2–canine, 3–feline, 4–porcine, 5–vulpine, 6–ursine, 7–equine, 8–omnipotent, 9–incarnate, 10–vegetate, 11–clandestine, 12–carnivorous, 13–ephemeral, 14–penurious _or_ parsimonious, 15–ambivalent, 16–eulogy, 17–euphoria, 18–anodyne, 19–euthanasia, 20–phonetics, 21–omnipotent, 22–capitulate, 23–synergism _or_ synergy, 24–decapitate, 25–pecuniary, 26–innocuous, 27–bibulous, 28–condole _or_ commiserate, 29–supercilious, 30–cavalry
+
+**Your score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**Your total score:** \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+_Significance of Your Total Score:_
+
+| 100–120: | Masterly          |
+| -------- | ----------------- |
+| 80–99:   | Good              |
+| 65–79:   | Average           |
+| 50–64:   | Barely acceptable |
+| 35–49:   | Poor              |
+| 0–34:    | Terrible!         |
+
+Record your score in the appropriate space below as well as your scores from Chapters 8 and 13. You will then have a comparison chart of all three achievement tests.
+
+SCORES
+
+| TEST I (Chapter 8):    | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ out of 120. |
+| ---------------------- | ------------------------------------------------ |
+| TEST II (Chapter 13):  | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ out of 120. |
+| TEST III (Chapter 17): | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ out of 120. |
+
+(_End of Session 47_)

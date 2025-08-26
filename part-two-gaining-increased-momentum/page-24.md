@@ -1,0 +1,2352 @@
+# Page 24
+
+## 12 <a href="#page341" id="page341"></a>
+
+## HOW TO FLATTER YOUR FRIENDS
+
+## (_Sessions 32–37_)
+
+***
+
+TEASER PREVIEW
+
+What adjective aptly describes people who are:
+
+• _friendly and easy to get along with?_
+
+• _tireless?_
+
+• _simple, frank, aboveboard?_
+
+• _keen-minded?_
+
+• _generous, noble, and forgiving?_
+
+• _able to do many things skillfully?_
+
+• _unflinching in the face of pain or disaster?_
+
+• _brave, fearless?_
+
+• _charming and witty?_
+
+• _smooth, polished, cultured?_
+
+***
+
+### SESSION 32 <a href="#page342" id="page342"></a>
+
+Words are the symbols of emotions, as well as ideas. You can show your feeling by the tone you use (“You’re silly” can be an insult, an accusation, or an endearment, depending on how you say it) or by the words you choose (you can label a quality either “childish” or “childlike,” depending on whether you admire it or condemn it—it’s the same quality, no matter what you call it).
+
+In Chapter 11 we discussed ten basic words that you might use to show your disapproval. In this chapter we discuss ten adjectives that indicate wholehearted approval.
+
+Consider the interesting types of people described in the following paragraphs, then note how accurately the adjective applies to each type.
+
+#### IDEAS
+
+**1. put the kettle on, Polly**
+
+They are friendly, happy, extroverted, and gregarious—the sort of people who will invite you out for a drink, who like to transact business around the lunch table, who put the coffee to perking as soon as company drops in. They’re sociable, genial, cordial, affable—and they like parties and all the eating and drinking that goes with them.
+
+The adjective is: _convivial_
+
+**2. you can’t tire them**
+
+Arnold Bennett once pointed out that we all have the same amount of time—twenty-four hours a day. Strictly speaking, that’s as inconclusive an observation as Bennett ever made. It’s not timethat counts, but energy—and of that wonderful quality we all have very different amounts, from the persons who wake up tired, no matter how much sleep they’ve had, to lucky, well-adjusted mortals who hardly ever need to sleep.
+
+Energy comes from a healthy body, of course; it also comes from a psychological balance, a lack of conflicts and insecurities.
+
+Some people apparently have boundless, illimitable energy—they’re on the go from morning to night, and often far into the night, working hard, playing hard, never tiring, never “pooped” or “bushed”—and getting twice as much done as any three other human beings.
+
+The adjective is: _indefatigable_
+
+**3. no tricks, no secrets**
+
+They are pleasingly frank, utterly lacking in pretense or artificiality, in fact quite unable to hide their feelings or thoughts—and so honest and aboveboard that they can scarcely conceive of trickery, chicanery, or dissimulation in anyone. There is, then, about them the simple naturalness and unsophistication of a child.
+
+The adjective is: _ingenuous_
+
+**4. sharp as a razor**
+
+They have minds like steel traps; their insight into problems that would confuse or mystify people of less keenness or discernment is just short of amazing.
+
+The adjective is: _perspicacious_
+
+**5. no placating necessary**
+
+They are most generous about forgiving a slight, an insult, an injury. Never do they harbor resentment, store up petty grudges, or waste energy or thought on means of revenge or retaliation. How could they? They’re much too big-hearted.
+
+The adjective is: _magnanimous_
+
+**6. one-person orchestras**
+
+The range of their aptitudes is truly formidable. If they are writers, they have professional facility in poetry, fiction, biography, criticism, essays—you just mention it and they’ve done it, and very competently. If they are musicians, they can play the oboe, the bassoon, the French horn, the bass viol, the piano, the celesta, the xylophone, even the clavichord if you can dig one up. If they are artists, they use oils, water colors, _gouache_, charcoal, _pen_ and ink—they can do anything! Or maybe the range of their abilities cuts across all fields, as in the case of Michelangelo, who was an expert sculptor, painter, poet, architect, and inventor. In case you’re thinking “Jack of all trades…,” you’re wrong—they’re _masters_ of all trades.
+
+The adjective is: _versatile_
+
+**7. no grumbling**
+
+They bear their troubles bravely, never ask for sympathy, never yield to sorrow, never wince at pain. It sounds almost superhuman, but it’s true.
+
+The adjective is: _stoical_
+
+**8. no fear**
+
+There is not, as the hackneyed phrase has it, a cowardly bone in their bodies. They are strangers to fear, they’re audacious, dauntless, contemptuous of danger and hardship.
+
+The adjective is: _intrepid_
+
+**9. no dullness**
+
+They are witty, clever, delightful; and naturally, also, they are brilliant and entertaining conversationalists.
+
+The adjective is: _scintillating_
+
+**10. city slickers**
+
+They are cultivated, poised, tactful, socially so experienced, sophisticated, and courteous that they’re at home in any group, at ease under all circumstances of social intercourse. You cannot help admiring (perhaps envying) their smoothness and self-assurance, their tact and congeniality.
+
+The adjective is: _urbane_
+
+#### USING THE WORDS
+
+**Can you pronounce the words?**
+
+|   1. _convivial_     | kƏn-VIV′-ee-Əl       |
+| -------------------- | -------------------- |
+|   2. _indefatigable_ | in′-dƏ-FAT′-Ə-gƏ-bƏl |
+|   3. _ingenuous_     | in-JEN′-y-Əs         |
+|   4. _perspicacious_ | pur′-spƏ-KAY′-shƏs   |
+|   5. _magnanimous_   | mƏg-NAN′-Ə-mƏs       |
+|   6. _versatile_     | VUR′-sƏ-tƏl          |
+|   7. _stoical_       | STŌ′-Ə-kƏl           |
+|   8. _intrepid_      | in-TREP′-id          |
+|   9. _scintillating_ | SIN′-tƏ-layt-ing     |
+| 10. _urbane_         | ur-BAYN′             |
+
+**Can you work with the words?**
+
+| 1. convivial       | a. frank                      |
+| ------------------ | ----------------------------- |
+|   2. indefatigable | b. unflinching                |
+|   3. ingenuous     | c. noble                      |
+|   4. perspicacious | d. capable in many directions |
+|   5. magnanimous   | e. tireless                   |
+|   6. versatile     | f. fearless                   |
+|   7. stoical       | g. keen-minded                |
+|   8. intrepid      | h. witty                      |
+|   9. scintillating | i. friendly                   |
+| 10. urbane         | j. polished, sophisticated    |
+
+***
+
+KEY:  1–i, 2–e, 3–a, 4–g, 5–c, 6–d, 7–b, 8–f, 9–h, 10–j
+
+***
+
+**Do you understand the words? (I)**
+
+&#x20; 1\. _Convivial_ people are unfriendly.
+
+TRUE      FALSE
+
+&#x20; 2\. Anyone who is _indefatigable_ tires easily.
+
+TRUE      FALSE
+
+&#x20; 3\. An _ingenuous_ person is artful and untrustworthy.
+
+TRUE      FALSE
+
+&#x20; 4\. A _perspicacious_ person is hard to fool.
+
+TRUE      FALSE
+
+&#x20; 5\. A _magnanimous_ person is easily insulted.
+
+TRUE      FALSE
+
+&#x20; 6\. A _versatile_ person does many things well.
+
+TRUE      FALSE
+
+&#x20; 7\. A _stoical_ person always complains of his hard lot.
+
+TRUE      FALSE
+
+&#x20; 8\. An _intrepid_ explorer is not easily frightened.
+
+TRUE      FALSE
+
+&#x20; 9\. A _scintillating_ speaker is interesting to listen to.
+
+TRUE      FALSE
+
+10\. Someone who is _urbane_ is always making enemies.
+
+TRUE      FALSE
+
+***
+
+KEY:  1–F, 2–F, 3–F, 4–T, 5–F, 6–T, 7–F, 8–T, 9–T, 10–F
+
+***
+
+**Do you understand the words? (II)**
+
+&#x20; 1\. convivial—hostile
+
+SAME      OPPOSITE
+
+&#x20; 2\. indefatigable—enervated
+
+SAME      OPPOSITE
+
+&#x20; 3\. ingenuous—worldly
+
+SAME      OPPOSITE
+
+4\. perspicacious—obtuse
+
+SAME      OPPOSITE
+
+&#x20; 5\. magnanimous—petty
+
+SAME      OPPOSITE
+
+&#x20; 6\. versatile—well-rounded
+
+SAME      OPPOSITE
+
+&#x20; 7\. stoical—unemotional
+
+SAME      OPPOSITE
+
+&#x20; 8\. intrepid—timid
+
+SAME      OPPOSITE
+
+&#x20; 9\. scintillating—banal
+
+SAME      OPPOSITE
+
+10\. urbane—erude
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–O, 2–O, 3–O, 4–O, 5–O, 6-S, 7–S, 8–O, 9–O, 10–O
+
+***
+
+**Can you recall the words?**
+
+&#x20; 1\. witty
+
+&#x20; 1\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. noble, forgiving
+
+&#x20; 2\. M\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 3\. capable in many fields
+
+&#x20; 3\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. keen-minded
+
+&#x20; 4\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. uncomplaining
+
+&#x20; 5\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. friendly
+
+&#x20; 6\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. poised; polished
+
+&#x20; 7\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. courageous
+
+&#x20; 8\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. tireless
+
+&#x20; 9\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. simple and honest; frank
+
+10\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–scintillating, 2–magnanimous, 3–versatile, 4–perspicacious, 5–stoical, 6–convivial, 7–urbane, 8–intrepid, 9–indefatigable, 10–ingenuous
+
+***
+
+(_End of Session 32_)
+
+### SESSION 33 <a href="#page348" id="page348"></a>
+
+#### ORIGINS AND RELATED WORDS
+
+**1. eat, drink, and be merry**
+
+The Latin verb _vivo_, to live, and the noun _vita_, life, are the source of a number of important English words.
+
+_Convivo_ is the Latin verb _to live together;_ from this, in Latin, was formed the noun _convivium_ (don’t get impatient; we’ll be back to English directly), which meant a _feast_ or _banquet;_ and from _convivium_ we get our English word _convivial_, an adjective that describes the kind of person who likes to attend feasts and banquets, enjoying (and supplying) the jovial good fellowship characteristic of such gatherings.
+
+Using the suffix -_ity_ can you write the noun form of the adjective _convivial?_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. (Can you pronounce it?)
+
+**2. living it up**
+
+Among many others, the following English words derive from Latin _vivo_, to live:
+
+1\. _vivacious_ (vī-VAY′-shƏs)—full of the joy of living; animated; peppy—a _vivacious_ personality. Noun: _vivacity_ (vī-VAS′-Ə-tee). You can, as you know, also add -_ness_ to any adjective to form a noun. Write the alternate noun form of _vivacious:_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+2\. _vivid_—possessing the freshness of life; strong; sharp—a _vivid_ imagination; a _vivid_ color. Add -_ness_ to form the noun: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+3\. _revive_ (rƏ-VĪV′)—bring back to life. In the 1960s, men’s fashions of the twenties were _revived._ Noun: _revival_ (rƏ-VĪ′-vƏl).
+
+4\. _vivisection_ (viv′-Ə-SEK′-shƏn)—operating on a live animal._Sect_- is from a Latin verb meaning _to cut. Vivisection_ is the process of experimenting on live animals to discover causes and cures of disease. _Antivivisectionists_ object to the procedure, though many of our most important medical discoveries were made through _vivisection._
+
+5\. _Viviparous_ (vī-VIP′-Ər-Əs)—producing live babies. Human beings and most other mammals are _viviparous. Viviparous_ is contrasted to _oviparous_ (ō-VIP′-Ər-Əs), producing young from eggs. Most fish, fowl, and other lower forms of life are _oviparous._
+
+The combining root in both these adjectives is Latin _pareo_, to give birth (_parent_ comes from the same root). In _oviparous_, the first two syllables derive from Latin _ovum_, egg.
+
+_Ovum_, egg, is the source of _oval_ and _ovoid_, egg-shaped; _ovulate_ (Ō′-vyƏ-layt′), to release an egg from the _ovary: ovum_ (Ō-vƏm), the female germ cell which, when fertilized by a sperm, develops into an embryo, then into a _fetus_ (FEE′-tƏs), and finally, in about 280 days in the case of humans, is born as an infant.
+
+The adjective form of _ovary_ is _ovarian_ (ō-VAIR′-ee-Ən); of _fetus, fetal_ (FEE′-tƏl). Can you write the noun form of the verb _ovulate?_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+_Love_, you may or may not be surprised to hear, also comes from _ovum._
+
+No, not the kind of love you’re thinking of. Latin _ovum_ became _oeuf_ in French, or with “the” preceding the noun (_the_ egg), _Voeuf_, pronounced something like LF. _Zero_ (picture it for a moment) is shaped like an egg (0), so if your score in tennis is _fifteen_, and your opponent’s is _zero_, you shout triumphantly, “Fifteen love! Let’s go!”
+
+**3. more about life**
+
+Latin _vita_, life, is the origin of:
+
+1\. _vital_ (VĪ′-tƏl)—essential to life; of crucial importance—a _vital_ matter; also full of life, strength, vigor, etc. Add the suffix -_ity_ to form the noun: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. Add a verb suffix to construct the verb: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ (meaning: _to give life to_). Finally, write the noun derived from the verb you have constructed: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+2\. _Revitalize_ (ree-VĪ′-tƏ-līz′) is constructed from the prefix _re_-, again, back, the root _vita_, and the verb suffix. Meaning? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. Can you write the noun formed from this verb? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+3\. The prefix _de_- has a number of meanings, one of which is essentially negative, as in _defrost, decompose, declassify_, etc. Using this prefix, can you write a verb meaning _to rob of life, to take life from?_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. Now write the noun form of this verb: \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+4\. _Vitamin_—one of the many nutritional elements on which life is dependent. Good eyesight requires vitamin A (found, for example, in carrots); strong bones need vitamin D (found in sunlight and cod-liver oil); etc.
+
+_Vitalize, revitalize_, and _devitalize_ are used figuratively—for example, a program or plan is _vitalized, revitalized_, or _devitalized_, according to how it’s handled.
+
+**4. French life**
+
+Sometimes, instead of getting our English words directly from Latin, we work through one of the Latin-derived or Romance languages. (As you will recall, the Romance languages—French, Spanish, Italian, Portuguese, and Romanian—are so called because they were originally dialects of the old Roman tongue. English, by the way, is not a Romance language, but a Teutonic one. Our tongue is a development of a German dialect imposed on the natives of Britain by the Angles, Saxons, and Jutes of early English history. Though we have taken over into English more than 50 per cent of the Latin vocabulary and almost 30 per cent of the classical Greek vocabulary as roots and prefixes, our basic language is nevertheless German).
+
+The French, using the same Latin root _vivo_, to live, formed two expressive phrases much used in English. French pronunciation is, of course, tricky, and if you are not at least superficially acquainted with that language, your pronunciation may sound a bit awkward to the sophisticated ear—but try it anyway. These phrases are:
+
+1\. _joie de vivre_—pronounced something like zhwahd′-VEEV′ (_zh_ is identical in sound to the _s_ of _pleasure_).
+
+Literally _joy of living_, this phrase describes an immense delight in being alive, an effervescent keenness for all the daily activities that human beings indulge in. People who possess _joie de vivre_ are never moody, depressed, bored, or apathetic—on the contrary, they are full of sparkle, eager to engage in all group activities, and, most important, always seem to be having a good time, no matter what they are doing. _Joie de vivre_ is precisely the opposite of _ennui_ (this is also a word of French origin, but is easy to pronounce: AHN′-wee), which is a feeling of boredom, discontent, or weariness resulting sometimes from having a jaded, oversophisticated appetite, sometimes from just finding all of life tedious and unappetizing, and sometimes implying in addition physical lassitude and general inactivity. Young children and simple people rarely experience _ennui_—to them life is always exciting, always new.
+
+2\. _bon vivant_, pronounced something like BŌNG′-vee-VAHNG′—the -NG a muted nasal sound similar to the -_ng_ in _sing._
+
+A _bon vivant_ is a person who lives luxuriously, especially in respect to rich food, good liquor, expensive theater parties, operas, and other accouterments of upper-class life. _Bon vivant_ means, literally, a _good liver;_ actually, a _high liver_, one who lives a luxurious life. When you think of a _bon vivant_ (usually, language being sexist, a male), you get the picture of someone attired in top hat, “soup and fish” or tuxedo, raising his cane to call a taxi while a beautiful, evening-gowned and sophisticated-looking woman, sparkling in diamonds and furs, waits at his side. They’re going to a champagne and partridge supper at an outrageously expensive restaurant, etc.—fill in your own details of the high life.
+
+The _bon vivant_ is of course a _convivial_ person—and also likely to be a _gourmet_ (gr-MAY′), another word from French.
+
+**5. food and how to enjoy it**
+
+The _gourmand_ (GR′-mƏnd) enjoys food with a sensual pleasure. To _gourmands_ the high spots of the day are the times for breakfast, lunch, dinner, and midnight supper; in short, they liketo eat, but the eating must be good. The verb form, _gormandize_ (GAWR′-mƏn-dīz′), however, has suffered a degeneration in meaning—it signifies _to stuff oneself like a pig._
+
+A _gourmand_ is significantly different from a _gourmet_, who has also a keen interest in food and liquor, but is much more fastidious, is more of a connoisseur, has a most discerning palate for delicate tastes, flavors, and differences; goes in for rare delicacies (like hummingbirds’ tongues and other such absurdities); and approaches the whole business from a scientific, as well as a sensual, viewpoint. _Gourmet_ is always a complimentary term, _gourmand_ somewhat less so.
+
+The person who eats voraciously, with no discernment whatever, but merely for the purpose of stuffing himself (“I know I haven’t had enough to eat till I feel sick”), is called a _glutton_ (GLUT′-Ən)—obviously a highly derogatory term. The verb _gluttonize_ is stronger than _gormandize;_ the adjective _gluttonous_ (GLUT′-Ə-nƏs) is about the strongest epithet you can apply to someone whose voracious eating habits you find repulsive. Someone who has a voracious, insatiable appetite for money, sex, punishment, etc. is also called a _glutton._
+
+#### REVIEW OF ETYMOLOGY
+
+| PREFIX, ROOT, SUFFIX                          | MEANING                |
+| --------------------------------------------- | ---------------------- |
+|   1. _vivo_                                   | to live                |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   2. -_ous_                                   | adjective suffix       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   3. _re_-                                    | again, back            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   4. _sectus_                                 | cut                    |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   5. _anti_-                                  | against                |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   6. _ovum_                                   | egg                    |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   7. _pareo_                                  | to give birth, produce |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   8. _vita_                                   | life                   |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   9. -_ize_                                   | verb suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 10. -_ation_                                  | noun suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|                                               | added to verbs         |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|                                               | ending in -_ize_       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 11. _de_-                                     | negative prefix        |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 12. _bon_                                     | good                   |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 13. -_ate_                                    | verb suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+
+#### USING THE WORDS
+
+**Can you pronounce the words? (I)**
+
+|   1. _conviviality_       | kƏn-viv′-ee-AL′-Ə-tee                |
+| ------------------------- | ------------------------------------ |
+|   2. _vivacious_          | vī-VAY′-shƏs                         |
+|   3. _vivacity_           | vī-VAS′-Ə-tee                        |
+|   4. _vivid_              | VIV′-id                              |
+|   5. _vividness_          | VIV′-id-nƏs                          |
+|   6. _revive_             | rƏ-VĪV                               |
+|   7. _revival_            | rƏ-VĪV′-Əl                           |
+|   8. _vivisection_        | viv′-Ə-SEK′-shƏn                     |
+|   9. _antivivisectionist_ | an′-tee (or tī)-viv′-Ə-SEK′-shƏn-ist |
+| 10. _viviparous_          | vī-VIP′-Ər-Əs                        |
+| 11. _oviparous_           | ō-VIP′-Ər-Əs                         |
+| 12. _oval_                | Ō′-vƏl                               |
+| 13. _ovoid_               | Ō′-voyd′                             |
+| 14. _ovary_               | Ō′-vƏ-ree                            |
+| 15. _ovarian_             | ō-VAIR′-ee-Ən                        |
+| 16. _ovulate_             | Ō-vyƏ-layt′                          |
+| 17. _ovulation_           | ō-vyƏ-LAY′-shƏn                      |
+
+**Can you pronounce the words? (II)**
+
+|   1. _vital_          | VĪ′-tƏl                 |
+| --------------------- | ----------------------- |
+|   2. _vitality_       | vī-TAL′-Ə-tee           |
+|   3. _vitalize_       | VĪ′-tƏ-līz′             |
+|   4. _vitalization_   | vī′-tƏ-lƏ-ZAY′-shƏn     |
+|   5. _revitalize_     | ree-VĪ′-tƏ-līz′         |
+|   6. _revitalization_ | ree-vī′-tƏ-lƏ-ZAY′-shƏn |
+|   7. _devitalize_     | dee-VĪ′-tƏ-līz′         |
+|   8. _devitalization_ | dee-vī′-tƏ-lƏ-ZAY′-shƏn |
+|   9. _joie de vivre_  | zhwahd′-VEEV′           |
+| 10. _ennui_           | AHN′-wee                |
+| 11. _bon vivant_      | BŌNG′ vee-VAHNGT        |
+| 12. _gourmand_        | GR′-mƏnd                |
+| 13. _gourmet_         | gr-MAY′                 |
+| 14. _gormandize_      | GAWR′-mƏn-dīz′          |
+| 15. _glutton_         | GLUT′-Ən                |
+| 16. _gluttonous_      | GLUT-Ə-nƏs              |
+| 17. _gluttonize_      | GLUT′-Ə-nīz′            |
+| 18. _vitamin_         | VĪ′-tƏ-min              |
+
+**Can you work with the words? (I)**
+
+| 1. oval, ovoid | a. peppy                 |
+| -------------- | ------------------------ |
+| 2. revitalize  | b. bearing live young    |
+| 3. gluttonous  | c. strong, sharp         |
+| 4. vivacious   | d. piggish; greedy       |
+| 5. vivid       | e. egg-shaped            |
+| 6. viviparous  | f. bearing young in eggs |
+| 7. oviparous   | g. give new life to      |
+
+***
+
+KEY:  1–e, 2–g, 3–d, 4–a, 5–c, 6–b, 7–f
+
+***
+
+**Can you work with the words? (II)**
+
+| 1. conviviality         | a. release of the egg                                                 |
+| ----------------------- | --------------------------------------------------------------------- |
+|   2. vivisection        | b. a “high liver”                                                     |
+|   3. antivivisectionist | c. experimentation on live animals                                    |
+|   4. ovulation          | d. one who is a connoisseur of good food                              |
+|   5. vitality           | e. effervescence; joy of living                                       |
+|   6. _joie de vivre_    | f. one who enjoys food                                                |
+|   7. ennui              | g. one who eats greedily; one who is greedy (as for punishment, etc.) |
+| 8. _bon vivant_         | h. boredom                                                            |
+|   9. gourmand           | i. congeniality                                                       |
+| 10. gourmet             | j. strength, vigor                                                    |
+| 11. glutton             | k. one who is against experimentation on live animals                 |
+
+***
+
+KEY:  1–i, 2–c, 3–k, 4–a, 5–j, 6–c, 7–h, 8–b, 9–f, 10–d, 11–g
+
+***
+
+**Can you work with the words? (III)**
+
+| 1. revive     | a. rob of life or strength                |
+| ------------- | ----------------------------------------- |
+| 2. vital      | b. nutritional element necessary for life |
+| 3. vitalize   | c. important, crucial                     |
+| 4. devitalize | d. stuff oneself like a pig               |
+| 5. gluttonize | e. breathe life into                      |
+| 6. vitamin    | f. bring back to life                     |
+
+***
+
+KEY:  1–f, 2–c, 3–e, 4–a, 5–d, 6–b
+
+***
+
+**Do you understand the words? (I)**
+
+&#x20; 1\. conviviality—asceticism
+
+SAME      OPPOSITE
+
+&#x20; 2\. vivacious—apathetic
+
+SAME      OPPOSITE
+
+&#x20; 3\. vivid—dull
+
+SAME      OPPOSITE
+
+&#x20; 4\. revive—kill
+
+SAME      OPPOSITE
+
+&#x20; 5\. revitalize—rejuvenate
+
+SAME      OPPOSITE
+
+&#x20; 6\. ennui—boredom
+
+SAME      OPPOSITE
+
+&#x20; 7\. _bon vivant_—“man about town”
+
+SAME      OPPOSITE
+
+&#x20; 8\. gormandize—starve
+
+SAME      OPPOSITE
+
+&#x20; 9\. glutton—ascetic
+
+SAME      OPPOSITE
+
+10\. _joie de vivre_—boredom
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–O, 2–O, 3–O, 4–O, 5–S, 6–S, 7–S, 8–O, 9–O, 10–O
+
+***
+
+**Do you understand the words? (II)**
+
+&#x20; 1\. vivacity—liveliness
+
+SAME      OPPOSITE
+
+&#x20; 2\. revival—renewal
+
+SAME      OPPOSITE
+
+&#x20; 3\. vivisection—experimentation on corpses
+
+SAME      OPPOSITE
+
+&#x20; 4\. ovulation—egg-releasing
+
+SAME      OPPOSITE
+
+&#x20; 5\. devitalize—reinvigorate
+
+SAME      OPPOSITE
+
+&#x20; 6\. vitality—fatigue
+
+SAME      OPPOSITE
+
+&#x20; 7\. gluttonous—greedy
+
+SAME      OPPOSITE
+
+&#x20; 8\. gourmand—ascetic
+
+SAME      OPPOSITE
+
+&#x20; 9\. ovoid—egg-shaped
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–S, 2–S, 3–O, 4–S, 5–O, 6–O, 7–S, 8–O, 9–S
+
+***
+
+**Do you understand the words? (III)**
+
+1\. Humans are _viviparous._
+
+TRUE      FALSE
+
+2\. Cows are _oviparous._
+
+TRUE      FALSE
+
+3\. _Ovulation_ takes places in females only when they are married.
+
+TRUE      FALSE
+
+4\. An _antivivisectionist_ believes in experimenting on live animals.
+
+TRUE      FALSE
+
+5\. _Vitamins_ are essential to good health.
+
+TRUE      FALSE
+
+6\. A _bon vivant_ lives like a hermit.
+
+TRUE      FALSE
+
+7\. A _gourmet_ stuffs himself with food.
+
+TRUE      FALSE
+
+8\. It is normal for young children to be overwhelmed with _ennui._
+
+TRUE      FALSE
+
+9\. People who are keenly alive possess _joie de vivre._
+
+TRUE      FALSE
+
+***
+
+KEY:  1–T, 2–F, 3–F, 4–F, 5–T, 6–F, 7–F, 8–F, 9–T
+
+***
+
+**Can you recall the words?**
+
+&#x20; 1\. bearing young by eggs (_adj._)
+
+&#x20; 1\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. bearing live young (_adj._)
+
+&#x20; 2\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. good-fellowship
+
+&#x20; 3\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. operating on live animals
+
+&#x20; 4\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. one who is opposed to such an activity
+
+&#x20; 5\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. the process of releasing an egg from the ovary
+
+&#x20; 6\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. to remove life or vigor from
+
+&#x20; 7\. D\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. joy of living
+
+&#x20; 8\. J\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. one who eats like a pig
+
+&#x20; 9\. G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. a “high liver”
+
+10\. B\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+11\. one who is a connoisseur of good food
+
+11\. G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+12\. one who gets a sensual enjoyment from good food
+
+12\. G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+13\. to stuff oneself like a pig; to eat greedily
+
+13\. G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+14\. boredom; discontent; tedium
+
+14\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+15\. liveliness, pep
+
+15\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+16\. egg-shaped
+
+16\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+17\. to bring renewed life or vigor to
+
+17\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#xNAN;_&#x6F;r_ O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+18\. referring to the ovary (_adj._)
+
+18\. O\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+19\. essential to life; crucial; of utmost importance
+
+19\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–oviparous, 2–viviparous, 3–conviviality, 4–vivisection, 5–antivivisectionist, 6–ovulation, 7–devitalize, 8–_joie de vivre_, 9–glutton, 10–_bon vivant_, 11–gourmet, 12–gourmand, 13–gluttonize _or_ gormandize, 14–ennui, 15–vivacity, vivaciousness, _or_ vitality, 16–oval _or_ ovoid, 17–revitalize _or_ revive, 18–ovarian, 19–vital
+
+***
+
+(_End of Session 33_)
+
+### SESSION 34 <a href="#page358" id="page358"></a>
+
+#### ORIGINS AND RELATED WORDS
+
+**1. no fatigue**
+
+_Indefatigable_ is a derived form of _fatigue—in_- is a negative prefix, the suffix -_able_ means _able to be;_ hence, literally, _indefatigable_ means _unable to be fatigued._ The noun is _indefatigability_ (in′-do-fat′-Ə-gƏ-BIL′-Ə-tee).
+
+**2. how simple can one be?**
+
+_Ingenuous_ is a complimentary term, though its synonyms _naïve, gullible_, and _credulous_ are faintly derogatory.
+
+To call people _ingenuous_ implies that they are frank, open, artless—in other words, not likely to try to put anything over on you, nor apt to hide feelings or thoughts that more sophisticated persons would consider it wise, tactful, or expedient to conceal.
+
+_Ingenuous_ should not be confused with _ingenious_ (in-JEEN′-yƏs)—note the slight difference in spelling—which on the contrary means _shrewd, clever, inventive._
+
+The noun form of _ingenuous_ is _ingenuousness;_ of _ingenious, ingenuity_ (in′-jƏ-N′-Ə-tee) or ingeniousness.
+
+To call people _naïve_ (nah-EEV′) is to imply that they have not learned the ways of the world, and are therefore idealistic and trusting beyond the point of safety; such idealism and trust have probably come from ignorance or inexperience. The noun is _naïveté_ (nah-eev-TAY′).
+
+_Credulous_ (KREJ′-Ə-lƏs) implies a willingness to believe almost anything, no matter how fantastic. _Credulity_ (krƏ-J′-lƏ-tee), like _naïveté_, usually results, again, from ignorance or inexperience, or perhaps from an inability to believe that human beings are capable of lying.
+
+_Gullible_ (GUL′-Ə-bƏl) means _easily tricked, easily fooled, easilyimposed on._ It is a stronger word than _credulous_ and is more derogatory. _Gullibility_ (gul′-Ə-BIL′-Ə-tee) results more from stupidity than from ignorance or inexperience.
+
+These four synonyms, _ingenuous, naïve, credulous_, and _gullible_, are fairly close, but they contain areas of distinction worth remembering. Let’s review them:
+
+&#x20; 1\. _ingenuous_—frank, not given to concealment
+
+&#x20; 2\. _naïve_—inexperienced, unsophisticated, trusting
+
+&#x20; 3\. _credulous_—willing to believe; not suspicious or skeptical
+
+&#x20; 4\. _gullible_—easily tricked
+
+**3. belief and disbelief**
+
+_Credulous_ comes from Latin _credo_, to believe, the same root found in _credit_ (if people _believe_ in your honesty, they will extend _credit_ to you; they will _credit_ what you say). -_Ous_ is an adjective suffix that usually signifies _full of._ So, strictly, _credulous_ means _full of believingness._
+
+Do not confuse _credulous_ with _credible._ (KRED′-Ə-bƏl). In the latter word we see combined the root _credo_, believe, with -_ible_, a suffix meaning _can be._ Something _credible_ can be believed.
+
+Let’s chart some differences:
+
+_Credulous_ listeners—those who fully believe what they hear
+
+A _credible_ story—one that can be believed
+
+An _incredulous_ (in-KREJ′-Ə-lƏs) attitude—an attitude of skepticism, of non-belief
+
+An _incredible_ (in-KRED′-Ə-bƏl) story—one that cannot be believed
+
+_Incredible_ characters—persons who are so unique that you can scarcely believe they exist.
+
+Nouns are formed as follows:
+
+_credulous—credulity_ (krƏ-J′-lƏ-tee)
+
+_incredulous—incredulity_ (in-krƏ-J′-lƏ-tee)
+
+_credible—credibility_ (kred′-Ə-BIL′-Ə-tee)
+
+_incredible—incredibility_ (in-kred′-Ə-BIL′-Ə-tee)
+
+To check your understanding of these distinctions, try the next test.
+
+**Can you use these words correctly?**
+
+Use _credulous, credible_, or corresponding negative or noun forms in the following sentences:
+
+&#x20; 1\. She listened \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ly to her husband’s confession of his frequent infidelity, for she had always considered him a paragon of moral uprightness.
+
+&#x20; 2\. He told his audience an \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ and fantastic story of his narrow escapes.
+
+&#x20; 3\. He’ll believe you—he’s very \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+&#x20; 4\. Make your characters more \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ if you want your readers to believe in them.
+
+&#x20; 5\. We listened dumb-struck, full of \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_, to the shocking details of corruption and vice.
+
+&#x20; 6\. He has the most \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ good luck.
+
+&#x20; 7\. The \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ of it! How can such things happen?
+
+&#x20; 8\. Naïve people accept with complete \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_, whatever anyone tells them.
+
+&#x20; 9\. “Do you believe me?” “Sure—your story is \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ enough.”
+
+10\. I’m not objecting to the total \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ of your story, but only to your thinking that I’m \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_enough to believe it!
+
+***
+
+KEY:  1–incredulously, 2–incredible, 3–credulous, 4–credible, 5–incredulity, 6–incredible, 7–incredibility, 8–credulity, 9–credible, 10–incredibility, credulous
+
+***
+
+**4. what people believe in**
+
+_Credo_, to believe, is the origin of four other useful English words.
+
+1\. _Credo_ (KREE′-do)—personal belief, code of ethics; the principles by which people guide their actions.
+
+2\. _Creed_—a close synonym of _credo;_ in addition, a religious belief, such as Catholicism, Judaism, Protestantism, Hinduism, etc.
+
+3\. _Credence_ (KREE′-dƏns)—belief, as in, “I place no _credence_ in his stories.” or “Why should I give any _credence_ to what you say?”
+
+4\. _Credentials_ (krƏ-DEN′-shƏls)—a document or documents proving a person’s right to a title or privilege (i.e., a right to be believed), as in, “The new ambassador presented his _credentials_ to the State Department.”
+
+**5. heads and tails**
+
+We can hardly close our book on the words suggested by _ingenuous_ without looking at the other side of the coin. If _ingenuous_ means _frank, open_, then _disingenuous_ (dis-in-JEN′-y-Əs) should mean _not frank or open._ But _disingenuous_ people are far more than simply _not ingenuous._ They are crafty, cunning, dishonest, artful, insincere, untrustworthy—and they are all of these while making a pretense of being simple, frank, and aboveboard. You are thinking of a wolf in sheep’s clothing? It’s a good analogy.
+
+Similarly, a remark may be _disingenuous_, as may also a statement, an attitude, a confession, etc.
+
+Add -_ness_ to form the noun derived from _disingenuous:_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+#### REVIEW OF ETYMOLOGY
+
+| PREFIX, ROOT, SUFFIX                      | MEANING            |
+| ----------------------------------------- | ------------------ |
+| 1. _in_-                                  | negative prefix    |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 2. -_ness_                                | noun suffix        |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 3. _credo_                                | to believe         |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 4. -_ous_                                 | adjective suffix   |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 5. -_ible_                                | can be; able to be |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 6. -_ity_                                 | noun suffix        |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 7. -_ence_                                | noun suffix        |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+| 8. _dis_-                                 | negative prefix    |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                    |
+
+#### USING THE WORDS
+
+**Can you pronounce the words?**
+
+|   1. _indefatigability_ | in′-dƏ-fat′-Ə-gƏ-BIL′-Ə-tee |
+| ----------------------- | --------------------------- |
+|   2. _ingenuousness_    | in-JEN′-y-Əs-ness           |
+|   3. _ingenious_        | in-JEEN′-yƏs                |
+|   4. _ingenuity_        | in′-jƏ-N′-Ə-tee             |
+|   5. _naïve_            | nah-EEV′                    |
+|   6. _naïveté_          | nah-eev-TAY′                |
+|   7. _credulous_        | KREJ′-Ə-lƏs                 |
+|   8. _incredulous_      | in-KREJ′-Ə-lƏs              |
+|   9. _gullible_         | GUL′-Ə-bƏl                  |
+| 10. _gullibility_       | gul′-Ə-BIL′-Ə-tee           |
+| 11. _credible_          | KRED′-Ə-bƏl                 |
+| 12. _incredible_        | in-KRED′-Ə-bƏl              |
+| 13. _credulity_         | krƏ-J′-lƏ-tee               |
+| 14. _incredulity_       | in′-krƏ-J′-lƏ-tee           |
+| 15. _credibility_       | kred′-Ə-BIL′-Ə-tee          |
+| 16. _incredibility_     | in-kred′-Ə-BIL′-Ə-tee       |
+| 17. _credo_             | KREE′-dō                    |
+| 18. _creed_             | KREED                       |
+| 19. _credence_          | KREE′-dƏns                  |
+| 20. _credentials_       | krƏ-DEN′-shƏlz              |
+| 21. _disingenuous_      | dis′-in-JEN′-y-Əs           |
+| 22. _disingenuousness_  | dis′-in-JEN′-y-Əs-nƏs       |
+
+**Can you work with the words? (I)**
+
+| WORDS               | DEFINITIONS                    |
+| ------------------- | ------------------------------ |
+| 1. indefatigability | a. cunning                     |
+| 2. ingenuousness    | b. skepticism                  |
+| 3. disingenuousness | c. personal code of ethics     |
+| 4. naïveté          | d. frankness                   |
+| 5. credibility      | e. belief, trust               |
+| 6. incredulity      | f. tirelessness                |
+| 7. credence         | g. believability               |
+| 8. credo            | h. inexperience; unworldliness |
+
+***
+
+KEY:  1–f, 2–d, 3–a, 4–h, 5–g, 6–b, 7–e, 8–c
+
+***
+
+**Can you work with the words? (II)**
+
+| 1. ingenious   | a. easily tricked                              |
+| -------------- | ---------------------------------------------- |
+| 2. credulous   | b. religious belief                            |
+| 3. gullible    | c. inexperienced; unworldly                    |
+| 4. incredible  | d. document proving privileges, identity, etc. |
+| 5. creed       | e. unbelievable                                |
+| 6. credentials | f. shrewdness; cleverness                      |
+| 7. ingenuity   | g. clever; inventive; shrewd                   |
+| 8. naïve       | h. willing to believe                          |
+
+***
+
+KEY:  1–g, 2–h, 3–a, 4–e, 5–b, 6–d, 7–f, 8–c
+
+***
+
+**Do you understand the words?**
+
+&#x20; 1\. Is _indefatigability_ a sign of physical and emotional health?
+
+YES      NO
+
+&#x20; 2\. Is _ingenuousness_ a normal quality of young childhood?
+
+YES      NO
+
+&#x20; 3\. Is _ingenuity_ a characteristic of inventors?
+
+YES      NO
+
+&#x20; 4\. Are some adolescents _naïve?_
+
+YES      NO
+
+&#x20; 5\. Are unintelligent people often _gullible?_
+
+YES      NO
+
+&#x20; 6\. Is _incredulity_ the mark of the agnostic?
+
+YES      NO
+
+&#x20; 7\. Does an _incredible_ story invite belief?
+
+YES      NO
+
+8\. Do people generally live by a _credo?_
+
+YES      NO
+
+&#x20; 9\. Does our Constitution guarantee certain rights to Americans irrespective of their _creed?_
+
+YES      NO
+
+10\. Are _ingenious_ people sometimes _disingenuous?_
+
+YES      NO
+
+11\. Do we generally give _credence_ to _incredible_ statements?
+
+YES      NO
+
+***
+
+KEY:  1–yes, 2–yes, 3–yes, 4–yes, 5–yes, 6–yes, 7–no, 8–yes, 9–yes, 10–yes, 11–no
+
+***
+
+**Can you recall the words?**
+
+&#x20; 1\. inexperience; unsophistication
+
+&#x20; 1\. N\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. believing (_adj._)
+
+&#x20; 2\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 3\. religious belief
+
+&#x20; 3\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. believable
+
+&#x20; 4\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. great reservoir of energy
+
+&#x20; 5\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. frankness
+
+&#x20; 6\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. crafty; dishonest
+
+&#x20; 7\. D\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. inventive; clever
+
+&#x20; 8\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. easily tricked
+
+&#x20; 9\. G\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. skeptical
+
+10\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+11\. unbelievable
+
+11\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+12\. personal code
+
+12\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–naïve, 2–credulous, 3–creed, 4–credible, 5–indefatigability, 6–ingenuousness, 7–disingenuous, 8–ingenious, 9–gullible, 10–incredulous, 11–incredible, 12–credo
+
+***
+
+(_End of Session 34_)
+
+### SESSION 35 <a href="#page365" id="page365"></a>
+
+#### ORIGINS AND RELATED WORDS
+
+**1. how to look**
+
+The Latin root _specto_, to look, is the source of a host of common English words: _spectacle, spectator, inspect, retrospect_ (a looking back), _prospect_ (a looking ahead), etc. In a variant spelling, _spic_-, the root is found in _conspicuous_ (easily seen or looked at), _perspicacious_, and _perspicuous._
+
+A _perspicacious_ (pur′-spƏ-KAY′-shƏs) person is keen-minded, mentally sharp, astute. _Per_- is a prefix meaning _through;_ so the word etymologically means _looking through_ (matters, etc.) keenly, intelligently. The noun: _perspicacity_ (pur′-spƏ-KAS′-Ə-tee). Write an alternate noun ending in -_ness:_
+
+_Perspicacity_ is a synonym of _acumen_ (AK′-y′-mƏn), mental keenness, sharpness, quickness; keen insight. The root is Latin _acuo_, to sharpen.
+
+**2. sharpness**
+
+From _acuo_, to sharpen, come such words as _acute_, sharp, sudden, as _acute pain_, an _acute_ attack of appendicitis, _acute_ reasoning, etc; and _acupuncture_ (AK′-y-punk′-chƏr), the insertion of a (sharp) needle into the body for medical purposes. The noun form of _acute_, referring to the mind or thinking, is _acuteness_ or _acuity_ (Ə-KY-Ə-tee); in other contexts, _acuteness_ only.
+
+_Acupuncture_ combines _acuo_, to sharpen, with _punctus_, point. When you _punctuate_ a sentence, you put various _points_ (periods, commas, etc.) where needed; when lightning _punctuates_ the storm, or when the silence is _punctuated_ by the wailing of policesirens, again _points_, etymologically speaking, interrupt the atmosphere, the quiet, etc.
+
+If you are _punctual_, you’re right on the point of time (noun: _punctuality_); if you’re _punctilious_ (punk-TIL′-ee-Əs), you are exact, scrupulous, very careful to observe the proper _points_ of behavior, procedure, etc. (noun: _punctiliousness_). And to _puncture_ something, of course, is to make a hole in it with a sharp _point_—as to _puncture_ someone’s tire, or figuratively, illusions, fantasies, or ego. _Pungent_ (PUN′-jƏnt) comes from another form of the root _punctus_ (_pungo_, to pierce sharply), so a _pungent_ smell or taste is sharp, spicy, pricking the nose or taste buds, so to speak; and a _pungent_ wit sharply pierces one’s sense of humor. Can you write the noun forms of this adjective? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ or \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+**3. some more looking**
+
+_Perspicacious_ should not be confused with _perspicuous_ (pƏr-SPIK′-y-Əs). Here is the important distinction:
+
+_Perspicacious_ means _smart, sharp, able to look through and understand quickly._ This adjective applies to persons, their reasoning, minds, etc.
+
+_Perspicuous_ is the obverse side of the coin—it means _easily understood from one look_, and applies to writing, style, books, and like things that have to be understood. Hence it is a synonym of _clear, simple, lucid._ If you write with _perspicuous_ style, your language is clear, easy to understand. If you are _perspicacious_, you understand quickly, easily.
+
+The noun form of _perspicuous_ is _perspicuity_ (pur′-spƏ-KY′-Ə-tee), or, of course, _perspicuousness._
+
+_A spectacle_ is something to _look at; spectacles_ (eyeglasses) are the means by which you get a comfortable and accurate _look_ at the world. Anything _spectacular_ is, etymologically, worth _looking_ at.
+
+A _spectator_ is one who _looks at_ what’s happening.
+
+To _inspect_ is to _look into_ something.
+
+_Retrospect_ (RET′-rƏ-spekt′) is a backward _look_—generally the word is preceded by the preposition _in_, for instance, “His life _in retrospect_ seemed dreary and dull,” or “Most experiences seemmore enjoyable _in retrospect_ than in actuality” (_retro_-, backward).
+
+_Prospect_ (PROS′-pekt′) is a forward _look; prospective_ (prƏ-SPEK′-tiv) is the adjective. What’s the _prospect_ for inflation, for world peace, for the domestic energy supply? Your _prospective_ mother-in-law is the one you can look forward to if you marry a certain person; similarly, your _prospective_ bride, groom, child, job, vacation, etc. is the person, thing, or activity in the future that you look forward to. (The prefix is _pro_-, forward, ahead, before.)
+
+If you enjoy looking at yourself, figuratively speaking, then you like to examine your mental processes and emotional reactions, in the intense way characteristic of the _introvert_ (see Chapter 3). Your mind’s eye turns inward, and you spend a good deal of time analyzing yourself, your character, your personality, your actions. Hence, since you look _inward_, you are _introspective_ (in′-trƏ-SPEK′-tiv)—the prefix is _intro_-, inside, within. If you _introspect_ (in′-trƏ-SPEKT′), you look inward and examine your inner reactions. Too much _introspection_ (in′-trƏ-SPEK′-shƏn) or _introspectiveness_ may lead to unhappiness or to depressing thoughts or feelings of anxiety—few people have the courage to see themselves as they really are.
+
+There are times when you have to look _around_ most carefully; you must then be _circumspect_ (SUR′-kƏm-spekt′)—watchful, cautious, alert (_circum_-, around).
+
+The noun is _circumspection_ (sur′-kem-SPEK′-shƏn) or _circumspectness._
+
+If something looks good or sensible, but actually is not, we call it _specious_ (SPEE′-shƏs). A _specious_ argument sounds plausible, but in reality is based on an error, a fallacy, or an untruth. The noun is _speciousness._
+
+**REVIEW OF ETYMOLOGY**
+
+| PREFIX, ROOT, SUFFIX                      | MEANING                |
+| ----------------------------------------- | ---------------------- |
+|   1. _specto_                             | to look                |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   2. _per_-                               | through                |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 3. _acuo_                                 | to sharpen             |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   4. _punctus_                            | point                  |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   5. -_ate_                               | verb suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   6. -_al_                                | adjective suffix       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   7. _pungo_                              | to pierce sharply      |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   8. -_ent_                               | adjective suffix       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+|   9. -_ence, -ency_                       | noun suffixes          |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 10. -_ness_                               | noun suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 11. -_ity_                                | noun suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 12. _retro_-                              | backward               |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 13. _pro_-                                | forward, ahead, before |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 14. _intro_-                              | inside, within         |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 15. -_ion_                                | noun suffix            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 16. -_ive_                                | adjective suffix       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+| 17. _circum_-                             | around                 |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                        |
+
+#### USING THE WORDS
+
+**Can you pronounce the words? (I)**
+
+|   1. _perspicacious_ | pur′-spƏ-KAY′-shƏs  |
+| -------------------- | ------------------- |
+|   2. _perspicacity_  | pur′-spƏ-KAS′-Ə-tee |
+|   3. _acumen_        | AK′-y′-mƏn          |
+|   4. _acute_         | Ə-KYT′              |
+|   5. _acuity_        | Ə-KY′-Ə-tee         |
+|   6. _acupuncture_   | AK′-y-punk′-chƏr    |
+|   7. _punctuate_     | PUNK′-ch-ayt′       |
+|   8. _punctilious_   | punk-TIL′-ee-Əs     |
+|   9. _puncture_      | PUNK′-chƏr          |
+| 10. _pungent_        | PUN′-jƏnt           |
+| 11. _pungence_       | PUN′-jƏns           |
+| 12. _pungency_       | PUN′-jƏn-see        |
+
+**Can you pronounce the words? (II)**
+
+|   1. _perspicuous_   | pƏr-SPIK′-y-Əs      |
+| -------------------- | ------------------- |
+|   2. _perspicuity_   | pur′-spƏ-KY′-Ə-tee  |
+| 3. _retrospect_      | RET′-rƏ-spekt′      |
+|   4. _prospect_      | PROS′-pekt′         |
+|   5. _prospective_   | prƏ-SPEK′-tiv       |
+|   6. _introspective_ | in′-trƏ-SPEK′-tiv   |
+|   7. _introspect_    | in′-trƏ-SPEKT′      |
+|   8. _introspection_ | in′-trƏ-SPEK′-shƏn  |
+|   9. _circumspect_   | SUR′-kƏm-spekt′     |
+| 10. _circumspection_ | sur′-kƏm-SPEK′-shƏn |
+| 11. _specious_       | SPEE′-shƏs          |
+
+**Can you work with the words? (I)**
+
+| 1. perspicacious   | a. extremely careful, exact, or proper in procedure    |
+| ------------------ | ------------------------------------------------------ |
+|   2. acumen        | b. clear; easy to understand                           |
+|   3. acupuncture   | c. a forward look                                      |
+|   4. punctilious   | d. looking inside, or examining or analyzing, oneself  |
+|   5. pungent       | e. keen-minded                                         |
+|   6. perspicuous   | f. sharp; spicy; piercing                              |
+|   7. retrospect    | g. careful, watchful, wary, cautious; “looking around” |
+|   8. prospect      | h. sharpness of mind or thinking                       |
+|   9. introspective | i. a backward look                                     |
+| 10. circumspect    | j. medical insertion of needles                        |
+
+***
+
+KEY:  1–e, 2–h, 3–j, 4–a, 5–f, 6–b, 7–i, 8–c, 9–d, 10–g
+
+***
+
+**Can you work with the words? (II)**
+
+| 1. acute                | a. pierce; make a hole in; (noun) a small hole                                |
+| ----------------------- | ----------------------------------------------------------------------------- |
+|   2. acuity             | b. clarity; lucidity; ability to be understood quickly and easily             |
+| 3. punctuate            | c. sounding plausible, or looking right, but actually false or untrue         |
+|   4. puncture           | d. in the future; describing that which, or one who, can be looked forward to |
+|   5. pungence, pungency | e. care; watchfulness; caution                                                |
+|   6. perspicuity        | f. sharp; sudden; keen-minded                                                 |
+|   7. prospective        | g. tending to examine and to think about one’s motives, feelings, etc.        |
+|   8. introspective      | h. interrupt sharply or suddenly                                              |
+|   9. circumspection     | i. sharpness or spiciness of taste, smell, wit, etc.                          |
+| 10. specious            | j. keeness of mind, thinking, or intellect                                    |
+
+***
+
+KEY:  1–f, 2–j, 3–h, 4–a, 5–i, 6–b, 7–d, 8–g, 9–e, 10–c
+
+***
+
+**Do you understand the words?**
+
+&#x20; 1\. perspicacious—dull-witted
+
+SAME      OPPOSITE
+
+&#x20; 2\. acumen—stupidity
+
+SAME      OPPOSITE
+
+&#x20; 3\. acute—sharp
+
+SAME      OPPOSITE
+
+&#x20; 4\. acuity—perspicacity
+
+SAME      OPPOSITE
+
+&#x20; 5\. punctilious—casual
+
+SAME      OPPOSITE
+
+&#x20; 6\. pungent—flat, dull
+
+SAME      OPPOSITE
+
+&#x20; 7\. perspicuous—clear
+
+SAME      OPPOSITE
+
+&#x20; 8\. retrospect—backward look
+
+SAME      OPPOSITE
+
+&#x20; 9\. prospect—expectation
+
+SAME      OPPOSITE
+
+10\. introspective—extroverted
+
+SAME      OPPOSITE
+
+11\. prospective—in the past
+
+SAME      OPPOSITE
+
+12\. circumspect—careless
+
+SAME      OPPOSITE
+
+13\. specious—true
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–O, 2–O, 3–S, 4–S, 5–O, 6–O, 7–S, 8–S, 9–S, 10–O, 11–O, 12–O, 13–O
+
+***
+
+**Can you recall the words? (I)**
+
+&#x20; 1\. plausible, but false or incorrect
+
+&#x20; 1\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. spiciness, sharpness; piercing quality
+
+&#x20; 2\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 3\. clear; easily understood
+
+&#x20; 3\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. sharpness of mind or of intelligence
+
+&#x20; 4\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. care and caution; wariness
+
+&#x20; 5\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. piercing of the skin with needles for medical purposes
+
+&#x20; 6\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. tending to examine one’s motives, etc.; loooking inward (_adj._)
+
+&#x20; 7\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. exact in the observance of proper procedure
+
+&#x20; 8\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. to pierce and make a small hole in
+
+&#x20; 9\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. a backward look or view
+
+10\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–specious, 2–pungence _or_ pungency, 3–perspicuous, 4–acumen _or_ acuteness _or_ acuity, 5–circumspection _or_ circumspectness, 6–acupuncture, 7–introspective, 8–punctilious, 9–puncture, 10–retrospect
+
+***
+
+**Can you recall the words? (II)**
+
+&#x20; 1\. keenness of mind
+
+&#x20; 1\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 2\. sharp; sudden; keen-minded
+
+&#x20; 2\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 3\. to interrupt suddenly
+
+&#x20; 3\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 4\. spicy; piercing in taste, smell, wit, etc.
+
+&#x20; 4\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 5\. clarity; clearness of style or language
+
+5\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 6\. keen-minded; perceptive
+
+&#x20; 6\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 7\. a look forward
+
+&#x20; 7\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 8\. act or process of looking inward
+
+&#x20; 8\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+&#x20; 9\. carefully looking around; cautious; wary
+
+&#x20; 9\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+10\. anticipated; “to be”; looked forward to (_adj._)
+
+10\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–perspicacity _or_ perspicaciousness, 2–acute, 3–punctuate, 4–pungent, 5–perspicuity _or_ perspicuousness, 6–perspicacious, 7–prospect, 8–introspection, 9–circumspect, 10–prospective
+
+***
+
+(_End of Session 35_)
+
+### SESSION 36
+
+#### ORIGINS AND RELATED WORDS
+
+**1. the great and the small**
+
+You are familiar with Latin _animus_, mind. _Animus_ and a related root, _anima_, life principle, soul, spirit (in a sense, these meanings are all very similar), are the source of such words as _animal, animate_ and _inanimate, animated_, and _animation;_ knowing the meaning of the roots, you have a better understanding of any word built on them.
+
+_Magnanimous_ contains, in addition to _animus_, mind, the root _magnus_, large, great, which you recall from _magniloquent. Magnanimous_ people have such great, noble minds or souls that they are beyond seeking petty revenge.
+
+The noun is _magnanimity_ (mag′-nƏ-NIM′-Ə-tee).
+
+On the other hand, people who have tiny, tiny minds or souls are _pusillanimous_ (py′-sƏ-LAN′-Ə-mes)—Latin _pusillus_, tiny. Hence, they are contemptibly petty and mean. The noun is _pusillanimity_ (py′-sƏ-lƏ-NIM′-Ə-tee).
+
+Other words built on _animus_, mind:
+
+1\. _unanimous_ (y-NAN′-Ə-mƏs)—of one _mind._ If the Supreme Court hands down a _unanimous_ opinion, all the judges are of _one_ mind (Latin _unus_, one). The noun is _unanimity_ (y′-nƏ-NIM′-Ə-tee).
+
+2\. _equanimity_ (ee′-kwƏ-NIM′-Ə-tee _or_ ek′-wƏ-NIM′-Ə-tee)—etymologically, “equal (or balanced) mind.” Hence, evenness or calmness of mind; composure. If you preserve your _equanimity_ under trying circumstances, you keep your temper, you do not get confused, you remain calm (Latin _aequus_, equal).
+
+3\. _animus_ (AN′-Ə-mƏs)—hostility, ill will, malevolence. Etymologically, _animus_ is simply _mind_, but has degenerated, as words often do, to mean _unfriendly mind._ The word is most often used in a pattern like, “I bear you no _animus_, even though you have tried to destroy me.” (Such a statement shows real _magnanimity!_)
+
+4\. _animosity_ (an′-Ə-MOS′-Ə-tee)—ill will, hostility. An exact synonym of _animus_, and a more common word. It is used in patterns like, “You feel a good deal of _animosity_, don’t you?”, “There is real _animosity_ between Bill and Ernie,” “If you bear me no _animosity_, why do you treat me so badly?”
+
+**2. turning**
+
+_Versatile_ comes from _verto, versus_, to turn—_versatile_ people can turn their hand to many things successfully. The noun is _versatility_ (vur′-sƏ-TIL′-Ə-tee).
+
+**3. Zeno and the front porch**
+
+Centuries ago, in ancient Greece, the philosopher Zeno lectured on a topic that still piques the human mind, to wit: “How to Live a Happy Life.” Zeno would stand on a porch (the Greek word for which is _stoa_) and hold forth somewhat as follows: people should free themselves from intense emotion, be unmoved by both joyand sorrow, and submit without complaint to unavoidable necessity.
+
+Today, psychologists suggest pretty much the exact opposite—let your emotions flow freely, express your love or animosity, don’t bottle up your feelings. But in the fourth century B.C., when Zeno was expounding his credo, his philosophy of control of the passions fell on receptive ears. His followers were called _Stoics_, after the _stoa_, or porch, from which the master lectured.
+
+If we call people _stoical_, we mean that they bear their pain or sorrow without complaint, they meet adversity with unflinching fortitude. This sounds very noble, you will admit—actually, according to modern psychological belief, it is healthier not to be so _stoical. Stoicism_ (STŌ′-Ə-siz-Əm) may be an admirable virtue (mainly because we do not then have to listen to the _stoic’s_ troubles), but it can be overdone.
+
+**4. fear and trembling**
+
+_Intrepid_ is from Latin _trepido_, to tremble. _Intrepid_ people exhibit courage and fearlessness (and not a single tremble!) when confronted by dangers from which you and I would run like the cowards we are. (You recognize the negative prefix _in_-.)
+
+The noun: _intrepidity_ (in′-trƏ-PID′-Ə-tee), or, of course, _intrepidness._
+
+_Trepido_ is the source also of _trepidation_ (trep′-Ə-DAY′-shƏn)—great fear, trembling, or alarm.
+
+**5. quick flash**
+
+_Scintilla_, in Latin, is a quick, bright spark; in English the word _scintilla_ (sin-TIL′-Ə) may also mean _a spark_, but more commonly refers to a very small particle (which, in a sense, a spark is), as in, “There was not a _scintilla_ of evidence against him.”
+
+In the verb _scintillate_ (SIN′-tƏ-layt′), the idea of the spark remains; someone who _scintillates_ sparkles with charm and wit, flashes brightly with humor. The noun is _scintillation_ (sin′-tƏ-LAY′-shƏn).
+
+**6. city and country**
+
+People who live in the big city go to theaters, attend the opera, visit museums and picture galleries, browse in bookstores, and shop at Robinson’s, Bloomingdale’s, Marshall Field, or other large department stores.
+
+These activities fill them with culture and sophistication.
+
+Also, they crowd into jammed subway trains or buses, squeeze into packed elevators, cross the street in competition with high-powered motorcars, patiently stand in line outside of movie houses, and then wait again in the lobby for seats to be vacated.
+
+Also, they have the privilege of spending two hours a day going to and coming from work.
+
+As a result, city-dwellers are refined, polished, courteous—or so the etymology of _urbane_ (from Latin _urbs_, city) tells us. (And you must be absurdly credulous, if not downright gullible, to believe it.) The noun is _urbanity_ (ur-BAN′-Ə-tee).
+
+So _urbane_ people are gracious, affable, cultivated, suave, tactful—add any similar adjectives you can think of.
+
+_Urban_ (UR′-bƏn) as an adjective simply refers to cities—_urban_ affairs, _urban_ areas, _urban_ populations, _urban_ life, _urban_ development, etc.
+
+Consider some prefixes: _sub_-, near; _inter_-, between; _intra_-, inside, within; _ex_-, out.
+
+Add each prefix to the root _urbs_, using the adjective suffix -_an:_
+
+sub\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_: near the city
+
+(_Sub_- has a number of meanings: _under, near, close to_, etc.)
+
+inter\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_: between cities
+
+intra\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_: within a city
+
+ex\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_: out of the city
+
+The _suburbs_ are residential sections, or small communities, close to a large city; Larchmont is a _suburb_ of New York City, Whittier a _suburb_ of Los Angeles.
+
+_Suburbia_ (sƏ-BUR′-bee-Ə) may designate _suburbs_ as a group; _suburban_ residents, or _suburbanites_ (sƏ-BUR′-bƏ-nīts′), as agroup; or the typical manners, modes of living, customs, etc. of suburban residents.
+
+An _interurban_ bus travels _between_ cities, an _intraurban_ bus _within_ a single city.
+
+An _exurb_ (EKS′-urb) lies well beyond, way outside, a large city, and generally refers to a region inhabited by well-to-do families. _Exurb_ has derived forms corresponding to those of _suburb._ Can you construct them?
+
+| Plural noun:                        | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| ----------------------------------- | ------------------------------------ |
+| Adjective:                          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| Resident:                           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| As a group; manners, customs, etc.: | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+
+_Urbs_ is the city; Latin _rus, ruris_ is the country, i.e., farmland, fields, etc. So _rural_ (RR′-Əl) refers to country or farm regions, agriculture, etc.—a wealthy _rural_ area.
+
+_Rustic_ (RUS′-tik) as an adjective may describe furniture or dwellings made of roughhewn wood, or furnishings suitable to a farmhouse; or, when applied to a person, is an antonym of _urbane_—unsophisticated, boorish, lacking in social graces, uncultured. Noun: _rusticity_ (rus-TIS′-Ə-tee). _Rustic_ is also a noun designating a person with such characteristics, as in, “He was considered a _rustic_ by his classmates, all of whom came from cultured and wealthy backgrounds.”
+
+_Urbane_ and _rustic_, when applied to people, are emotionally charged words. _Urbane_ is complimentary, _rustic_ derogatory.<sup>1</sup>
+
+To _rusticate_ (RUS′-tƏ-kayt′) is to spend time in the country, away from the turmoil and tensions of big-city life. Can you construct the noun? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+#### REVIEW OF ETYMOLOGY <a href="#page377" id="page377"></a>
+
+| PREFIX, ROOT, SUFFIX                      | MEANING                          |
+| ----------------------------------------- | -------------------------------- |
+|   1. _animus_                             | mind                             |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   2. _anima_                              | soul, spirit, life principle     |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   3. _magnus_                             | large, great                     |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   4. _pusillus_                           | tiny                             |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   5. _unus_                               | one                              |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   6. _aequus_ (_equ_-)                    | equal                            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   7. _verto, versus_                      | to turn                          |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   8. _stoa_                               | porch                            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+|   9. _in_-                                | negative prefix                  |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 10. _trepido_                             | to tremble                       |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 11. _scintilla_                           | a spark                          |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 12. _urbs_                                | city                             |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 13. _sub_-                                | near, close to, under            |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 14. _inter_-                              | between                          |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 15. _intra_-                              | within, inside                   |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 16. _ex_-                                 | out                              |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 17. _rus, ruris_                          | country, farmlands               |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 18. -_ate_                                | verb suffix                      |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+| 19. -_ion_                                | noun suffix aded to -_ate_ verbs |
+| ENGLISH WORD   \_\_\_\_\_\_\_\_\_\_\_\_\_ |                                  |
+
+#### USING THE WORDS
+
+**Can you pronounce the words? (I)**
+
+|   1. _magnanimity_   | mag′-nƏ-NIM′-Ə-tee            |
+| -------------------- | ----------------------------- |
+|   2. _pusillanimous_ | py′-sƏ-LAN′-Ə-mƏs             |
+|   3. _pusillanimity_ | py′-sƏ-lƏ-NIM′-Ə-tee          |
+|   4. _unanimous_     | y-NAN′-Ə-mƏs                  |
+|   5. _unanimity_     | y-nƏ-NIM′-Ə-tee               |
+|   6. _equanimity_    | eek′ (_or_ ek′)-wƏ-NIM′-Ə-tee |
+|   7. _animus_        | AN′-Ə-mƏs                     |
+|   8. _animosity_     | an′-Ə-MOS′-Ə-tee              |
+|   9. _versatility_   | vur′-sƏ-TIL′-Ə-tee            |
+| 10. _stoic_          | STŌ′-ik                       |
+| 11. _stoicism_       | STŌ′-Ə-siz-Əm                 |
+
+**Can you pronounce the words? (II)**
+
+|   1. _intrepidity_   | in′-trƏ-PID′-Ə-tee |
+| -------------------- | ------------------ |
+|   2. _trepidation_   | trep′-Ə-DAY′-shƏn  |
+|   3. _scintilla_     | sin-TIL′-Ə         |
+|   4. _scintillate_   | SIN′-tƏ-layt′      |
+|   5. _scintillation_ | sin′-tƏ-LAY′-shƏn  |
+|   6. _urbanity_      | ur-BAN′-Ə-tee      |
+|   7. _suburbia_      | sƏ-BUR′-bee-Ə      |
+|   8. _interurban_    | in′-tƏr-UR′-bƏn    |
+|   9. _intraurban_    | in′-trƏ-UR′-bƏn    |
+| 10. _exurbs_         | EKS′-urbz          |
+| 11. _exurban_        | eks-UR′-bƏn        |
+| 12. _exurbanite_     | eks-UR′-bƏn-īt′    |
+| 13. _exurbia_        | eks-UR′-bee-Ə      |
+
+**Can you pronounce the words? (III)**
+
+| 1. _rural_       | RR′-Əl            |
+| ---------------- | ----------------- |
+| 2. _rustic_      | RUS′-tik          |
+| 3. _rusticity_   | rus-TIS′-Ə-tee    |
+| 4. _rusticate_   | RUS′-tƏ-kayt′     |
+| 5. _rustication_ | rus′-tƏ-KAY′-shƏn |
+| 6. _pejorative_  | pƏ-JAWR′-Ə-tiv    |
+
+**Can you work with the words? (I)**
+
+| 1. magnanimity     | a. calmness, composure                                                                        |
+| ------------------ | --------------------------------------------------------------------------------------------- |
+|   2. pusillanimity | b. ability either to do many different things well, or to function successfully in many areas |
+| 3. unanimity       | c. fearlessness; great courage                                                                |
+|   4. equanimity    | d. unemotionality; bearing of pain, etc. without complaint                                    |
+|   5. animosity     | e. big-heartedness; generosity; quality of forgiving easily                                   |
+|   6. versatility   | f. a sparkling with wit or cleverness                                                         |
+|   7. stoicism      | g. fear and trembling; alarm                                                                  |
+|   8. intrepidity   | h. complete agreement, all being of one mind                                                  |
+|   9. trepidation   | i. petty-mindedness                                                                           |
+| 10. scintillation  | j. anger, hostility, resentment, hatred                                                       |
+
+***
+
+KEY:  1–e, 2–i, 3–h, 4–a, 5–j, 6–b, 7–d, 8–c, 9–g, 10–f
+
+***
+
+**Can you work with the words? (II)**
+
+| 1. urbanity     | a. referring to the countryside                                                          |
+| --------------- | ---------------------------------------------------------------------------------------- |
+|   2. suburbia   | b. word with negative or derogatory connotation; describing such a word or words         |
+|   3. exurbia    | c. to spend time in the country                                                          |
+|   4. animus     | d. residential areas near big cities; customs, etc. of the inhabitants of such areas     |
+|   5. interurban | e. residential areas far from big cities; customs, etc. of the inhabitants of such areas |
+|   6. intraurban | f. between cities                                                                        |
+|   7. rural      | g. roughhewn, farmlike; unsophisticated, uncultured                                      |
+|   8. rustic     | h. sophistication, courtesy, polish, etc.                                                |
+|   9. rusticate  | i. anger, hatred, hostility                                                              |
+| 10. pejorative  | j. within one city                                                                       |
+
+***
+
+KEY:  1–h, 2–d, 3–e, 4–i, 5–f, 6–j, 7–a, 8–g, 9–c, 10–b
+
+***
+
+(_End of Session 36_)
+
+### SESSION 37
+
+#### READY FOR A STRONG REVIEW?
+
+Drill, drill, drill! This is the important secret of learning words thoroughly.
+
+Review, review, review! This is the secret of remembering, assimilating, digesting, and keeping as permanent acquisitions all the new words you have learned.
+
+So pitch in with enthusiasm to the rest of this chapter, made up of a series of valuable tests on all the chapter words. Ready?
+
+**Can you work with the words? (I)**
+
+| 1. retrospect    | a. complete agreement     |
+| ---------------- | ------------------------- |
+| 2. acumen        | b. pettiness              |
+| 3. magnanimity   | c. malevolence            |
+| 4. pusillanimity | d. backward look          |
+| 5. unanimity     | e. calmness               |
+| 6. equanimity    | f. ability in many fields |
+| 7. animosity     | g. mental keenness        |
+| 8. versatility   | h. generosity             |
+
+***
+
+KEY:  1–d, 2–g, 3–h, 4–b, 5–a, 6–e, 7–c, 8–f
+
+***
+
+**Can you work with the words? (II)**
+
+| 1. stoicism       | a. fearlessness                              |
+| ----------------- | -------------------------------------------- |
+| 2. intrepidity    | b. sparkle                                   |
+| 3. trepidation    | c. inward look                               |
+| 4. scintillation  | d. uncomplaining attitude to pain or trouble |
+| 5. urbanity       | e. falsity                                   |
+| 6. introspection  | f. polish, cultivation                       |
+| 7. circumspection | g. care, cautiousness                        |
+| 8. speciousness   | h. fear                                      |
+
+***
+
+KEY:  1–d, 2–a, 3–h, 4–b, 5–f, 6–c, 7–g, 8–e
+
+***
+
+**Can you work with the words? (III)**
+
+| 1. exurbs        | a. of one mind               |
+| ---------------- | ---------------------------- |
+| 2. pusillanimous | b. ill will                  |
+| 3. unanimous     | c. pertaining to the city    |
+| 4. animus        | d. petty                     |
+| 5. rustic        | e. self-analytical           |
+| 6. urban         | f. regions far from the city |
+| 7. introspective | g. cautious                  |
+| 8. circumspect   | h. false, though plausible   |
+| 9. specious      | i. countrified               |
+
+***
+
+KEY:  1–f, 2–d, 3–a, 4–b, 5–i, 6–c, 7–e, 8–g, 9–h
+
+***
+
+**Can you work with the words? (IV)**
+
+| 1. perspicacity   | a. clearness                     |
+| ----------------- | -------------------------------- |
+|   2. perspicuity  | b. to be witty                   |
+|   3. stoic        | c. spend time in the country     |
+|   4. scintilla    | d. one who controls his emotions |
+| 5. scintillate    | e. to look inward                |
+|   6. rural        | f. a very small amount           |
+|   7. rusticate    | g. keen intelligence             |
+|   8. introspect   | h. clear, understandable         |
+|   9. perspicuous  | i. keen-minded                   |
+| 10. perspicacious | j. pertaining to the country.    |
+
+***
+
+KEY:  1–g, 2–a, 3–d, 4–f, 5–b, 6–j, 7–c, 8–e, 9–h, 10–i
+
+***
+
+**Do you understand the words? (I)**
+
+1\. Does life often seem pleasanter in _retrospect?_
+
+YES      NO
+
+2\. Are people of _acuity_ gullible?
+
+YES      NO
+
+3\. Is _perspicacity_ a common characteristic?
+
+YES      NO
+
+4\. Is a person of _acumen_ likely to be naïve?
+
+YES      NO
+
+5\. Is a _perspicuous_ style of writing easy to read?
+
+YES      NO
+
+6\. Should all writers aim at _perspicuity?_
+
+YES      NO
+
+7\. Is _magnanimity_ a characteristic of small-minded people?
+
+YES      NO
+
+8\. Does a person of _pusillanimous_ mind often think of petty revenge?
+
+YES      NO
+
+9\. Is a _unanimous_ opinion one in which all concur?
+
+YES      NO
+
+***
+
+KEY:  1–yes, 2–no, 3–no, 4–no, 5–yes, 6–yes, 7–no, 8–yes, 9–yes
+
+***
+
+**Do you understand the words? (II)**
+
+&#x20; 1\. Is it easy to preserve one’s _equanimity_ under trying circumstances?
+
+YES      NO
+
+&#x20; 2\. Do we bear _animus_ toward our enemies?
+
+YES      NO
+
+&#x20; 3\. Do we usually feel great _animosity_ toward our friends?
+
+YES      NO
+
+&#x20; 4\. Do we admire _versatility?_
+
+YES      NO
+
+5\. Does a _stoic_ usually complain?
+
+YES      NO
+
+&#x20; 6\. Is _stoicism_ a mark of an uninhibited personality?
+
+YES      NO
+
+&#x20; 7\. Do cowards show _intrepidity_ in the face of danger?
+
+YES      NO
+
+&#x20; 8\. Do cowards often feel a certain amount of _trepidation?_
+
+YES      NO
+
+&#x20; 9\. Is a _scintilla_ of evidence a great amount?
+
+YES      NO
+
+10\. Do dull people _scintillate?_
+
+YES      NO
+
+11\. Is _urbanity_ a characteristic of boorish people?
+
+YES      NO
+
+***
+
+KEY:  1–no, 2–yes, 3–no, 4–yes, 5–no, 6–no, 7–no, 8–yes, 9–no, 10–no, 11–no
+
+***
+
+**Do you understand the words? (III)**
+
+1\. Is New York City a _rural_ community?
+
+YES      NO
+
+2\. Is a village an _urban_ community?
+
+YES      NO
+
+3\. Do you _rusticate_ in the city?
+
+YES      NO
+
+4\. Are extroverts very _introspective?_
+
+YES      NO
+
+5\. Does an introvert spend a good deal of time in _introspection?_
+
+YES      NO
+
+6\. In dangerous circumstances, is it wise to be _circumspect?_
+
+YES      NO
+
+7\. Do _specious_ arguments often sound convincing?
+
+YES      NO
+
+***
+
+KEY:  1–no, 2–no, 3–no, 4–no, 5–yes, 6–yes, 7–yes
+
+***
+
+**Do you understand the words? (IV)**
+
+&#x20; 1\. retrospect—prospect
+
+SAME      OPPOSITE
+
+&#x20; 2\. acute—perspicacious
+
+SAME      OPPOSITE
+
+&#x20; 3\. acumen—stupidity
+
+SAME      OPPOSITE
+
+&#x20; 4\. perspicuous—confused
+
+SAME      OPPOSITE
+
+5\. magnanimous—noble
+
+SAME      OPPOSITE
+
+&#x20; 6\. pusillanimous—petty
+
+SAME      OPPOSITE
+
+&#x20; 7\. unanimous—divided
+
+SAME      OPPOSITE
+
+&#x20; 8\. equanimity—nervousness
+
+SAME      OPPOSITE
+
+&#x20; 9\. animosity—hostility
+
+SAME      OPPOSITE
+
+10\. animus—friendliness
+
+SAME      OPPOSITE
+
+11\. versatility—monomania
+
+SAME      OPPOSITE
+
+12\. stoicism—cowardice
+
+SAME      OPPOSITE
+
+13\. intrepidity—fear
+
+SAME      OPPOSITE
+
+14\. trepidation—courage
+
+SAME      OPPOSITE
+
+15\. scintilla—slight amount
+
+SAME      OPPOSITE
+
+16\. urbanity—refinement
+
+SAME      OPPOSITE
+
+17\. rustic—crude
+
+SAME      OPPOSITE
+
+18\. rural—urban
+
+SAME      OPPOSITE
+
+19\. introspective—self-analytic
+
+SAME      OPPOSITE
+
+20\. circumspect—careless
+
+SAME      OPPOSITE
+
+21\. specious—true
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–O, 2–S, 3–O, 4–O, 5–S, 6–S, 7–O, 8–O, 9–S, 10–O, 11–O, 12–O, 13–O, 14–O, 15–S, 16–S, 17–S, 18–O, 19–S, 20–O, 21–O
+
+***
+
+**Can you recall the words? (I)**
+
+1\. ability in many fields
+
+&#x20; 1\. V\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+2\. pertaining to the city (_adj._)
+
+&#x20; 2\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. to spend time in the country
+
+&#x20; 3\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+4\. merest spark; small amount
+
+&#x20; 4\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. courage
+
+&#x20; 5\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–versatility, 2–urban, 3–rusticate, 4–scintilla, 5–intrepidity
+
+***
+
+**Can you recall the words? (II)**
+
+1\. unflinching fortitude
+
+&#x20; 1\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+2\. countrified; unpolished
+
+&#x20; 2\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. pertaining to the countryside (_adj._)
+
+&#x20; 3\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+4\. a looking back to the past
+
+&#x20; 4\. R\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. nobleness of mind or spirit
+
+&#x20; 5\. M\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–stoicism, 2–rustic, 3–rural, 4–retrospect, 5–magnanimity
+
+***
+
+**Can you recall the words? (III)**
+
+1\. keen-mindedness
+
+&#x20; 1\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+2\. clear, lucid
+
+&#x20; 2\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. petty, mean
+
+&#x20; 3\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+4\. all of one mind or opinion
+
+&#x20; 4\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. ill will
+
+&#x20; 5\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–acuity, 2–pcrspicuous, 3–pusillanimous, 4–unanimous, 5–animus _or_ animosity
+
+***
+
+**Can you recall the words? (IV)**
+
+1–4. keenness of mind
+
+&#x20; 1\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; _or_ P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; 2\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; 3\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\
+&#x20; 4\. A\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. clearness of style or language
+
+&#x20; 5\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+6\. one who keeps his emotions, during times of trouble, hidden
+
+&#x20; 6\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+7\. sophistication, courtesy, refinement
+
+&#x20; 7\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–perspicacity _or_ perspicaciousness, 2–acumen, 3–acuity, 4–acuteness (2–4 in any order), 5–perspicuity, 6–stoic, 7–urbanity
+
+***
+
+**Can you recall the words? (V)**
+
+1\. pettiness of character
+
+&#x20; 1\. P\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+2\. noun form of _unanimous_
+
+&#x20; 2\. U\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. mental calmness, balance
+
+&#x20; 3\. E\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+4\. fear and trembling
+
+&#x20; 4\. T\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. to sparkle with wit and humor
+
+&#x20; 5\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–pusillanimity, 2–unanimity, 3–equanimity, 4–trepidation, 5–scintillate
+
+***
+
+**Can you recall the words? (VI)**
+
+1\. a looking inward; an examining of one’s mental processes or emotional reactions
+
+&#x20; 1\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+2\. cautious
+
+&#x20; 2\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+3\. seemingly true, actually false
+
+&#x20; 3\. S\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+4\. to think of one’s mental processes
+
+&#x20; 4\. I\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+5\. care, watchfulness
+
+&#x20; 5\. C\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+***
+
+KEY:  1–introspective, 2–circumspect, 3–specious, 4–introspect, 5–circumspection
+
+***
+
+#### THREE FURTHER TESTS
+
+**I. matching**
+
+| MEANING            | WORD                          |
+| ------------------ | ----------------------------- |
+|   1. convivial     | a. frank                      |
+|   2. indefatigable | b. noble, forgiving           |
+|   3. ingenuous     | c. unflinching; unemotional   |
+| 4. perspicacious   | d. courteous; polished; suave |
+|   5. magnanimous   | e. companionable, gregarious  |
+|   6. versatile     | f. witty                      |
+|   7. stoical       | g. capable in many directions |
+|   8. intrepid      | h. brave                      |
+|   9. scintillating | i. keen-minded                |
+| 10. urbane         | j. tireless                   |
+
+***
+
+KEY:  1–e, 2–j, 3–a, 4–i, 5–b, 6–g, 7–c, 8–h, 9–f, 10–d
+
+***
+
+**II. same or opposite?**
+
+&#x20; 1\. vivacious—sluggish
+
+SAME      OPPOSITE
+
+&#x20; 2\. vital—crucial
+
+SAME      OPPOSITE
+
+&#x20; 3\. ennui—boredom
+
+SAME      OPPOSITE
+
+&#x20; 4\. _bon vivant_—gourmand
+
+SAME      OPPOSITE
+
+&#x20; 5\. gourmet—ascetic
+
+SAME      OPPOSITE
+
+&#x20; 6\. ingenuous—crafty
+
+SAME      OPPOSITE
+
+&#x20; 7\. naïve—sophisticated
+
+SAME      OPPOSITE
+
+&#x20; 8\. credulous—skeptical
+
+SAME      OPPOSITE
+
+&#x20; 9\. disingenuous—insincere
+
+SAME      OPPOSITE
+
+10\. credo—belief
+
+SAME      OPPOSITE
+
+***
+
+KEY:  1–O, 2–S, 3–S, 4–S, 5–O, 6–O, 7–O, 8–O, 9–S, 10–S
+
+***
+
+**III. changing parts of speech**
+
+Change these adjectives to nouns _not_ ending in -_ness._
+
+&#x20; 1\. indefatigable
+
+&#x20; 2\. perspicacious
+
+&#x20; 3\. stoical
+
+&#x20; 4\. urbane
+
+&#x20; 5\. naïve
+
+&#x20; 6\. incredulous
+
+&#x20; 7\. incredible
+
+&#x20; 8\. perspicuous
+
+&#x20; 9\. magnanimous
+
+10\. pusillanimous
+
+***
+
+KEY:  1–indefatigability, 2–perspicacity, 3–stoicism, 4–urbanity, 5–naïveté, 6–incredulity, 7–incredibility, 8–perspicuity, 9–magnanimity, 10–pusillanimity
+
+***
+
+#### CHAPTER REVIEW
+
+**A. Do you recognize the words?**
+
+&#x20; 1\. Tireless:
+
+(a) convivial, (b) indefatigable, (c) versatile
+
+&#x20; 2\. Frank, unsophisticated:
+
+(a) ingenuous, (b) ingenious, (c) intrepid
+
+&#x20; 3\. Unflinching, uncomplaining:
+
+(a) perspicacious, (b) urbane, (c) stoical
+
+&#x20; 4\. Noble, forgiving, generous:
+
+(a) pusillanimous, (b) unanimous, (c) magnanimous
+
+&#x20; 5\. Between cities:
+
+(a) interurban, (b) intraurban, (c) exurban
+
+&#x20; 6\. Giving birth to live young:
+
+(a) oviparous, (b) ovulation, (c) viviparous
+
+&#x20; 7\. Tedium, boredom:
+
+(a) ennui, (b) _joie de vivre_, (c) vitality
+
+&#x20; 8\. Connoisseur of choice food:
+
+(a) gourmet, (b) gourmand, (c) glutton
+
+&#x20; 9\. Inexperienced in the ways of the world:
+
+(a) credulous, (b) naïve, (c) credible
+
+10\. Easily tricked:
+
+(a) gullible, (b) incredulous, (c) ingenious
+
+11\. Backward look:
+
+(a) prospect, (b) retrospect, (c) introspection
+
+12\. Clearness:
+
+(a) perspicacity, (b) perspicuity, (c) intrepidity
+
+13\. Resentment:
+
+(a) animosity, (b) stoicism, (c) urbanity
+
+14\. Countrified:
+
+(a) rustic, (b) specious, (c) circumspect
+
+***
+
+KEY:  1–b, 2–a, 3–c, 4–c, 5–a, 6–c, 7–a, 8–a, 9–b, 10–a, 11–b, 12–b, 13–a, 14–a
+
+***
+
+**B. Can you recognize roots?**
+
+| ROOT                    | EXAMPLE                            |
+| ----------------------- | ---------------------------------- |
+|   1. _vivo_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   vivacious     |                                    |
+|   2. _sectus_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   vivisection   |                                    |
+|   3. _pareo_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   viviparous    |                                    |
+|   4. _ovum_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   oviparous     |                                    |
+|   5. _vita_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   vital         |                                    |
+|   6. _bon_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   _bon vivant_  |                                    |
+|   7. _credo_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   credible      |                                    |
+|   8. _specto_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   spectator     |                                    |
+|   9. _acuo_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   acupuncture   |                                    |
+| 10. _punctus_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   punctuate     |                                    |
+| 11. _pungo_             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   pungent       |                                    |
+| 12. _animus_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   animosity     |                                    |
+| 13. _pusillus_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   pusillanimous |                                    |
+| 14. _magnus_            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   magnanimous   |                                    |
+| 15. _unus_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   unanimous     |                                    |
+| 16. _aequus_ (_equ_-)   | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   equanimity    |                                    |
+| 17. _verto, versus_     | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   versatile     |                                    |
+| 18. _stoa_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   stoical       |                                    |
+| 19. _trepido_           | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   trepidation   |                                    |
+| 20. _scintilla_         | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   scintillate   |                                    |
+| 21. _urbs_              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   urban         |                                    |
+| 22. _rus, ruris_        | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| MEANING   rural, rustic |                                    |
+
+***
+
+KEY:  1–to live, 2–cut, 3–to give birth, produce, 4–egg, 5–life, 6–good, 7–to believe, 8–to look, 9–to sharpen, 10–point, 11–to pierce sharply, 12–mind, 13–tiny, 14–big, great, large, 15–one, 16–equal, 17–to turn, 18–porch, 19–to tremble, 20–spark, 21–city, 22–country, countryside
+
+***
+
+#### TEASER QUESTIONS FOR THE AMATEUR ETYMOLOGIST <a href="#page390" id="page390"></a>
+
+1\. Recalling the root _vivo_, to live, can you think of the verb that means _to live on?_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+Can you write the noun form? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+2\. How would you explain a _vivarium?_ \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+3\. Recalling the meanings of Latin _vita_, what would you understand if someone asked you for your _vita_ before you appeared for an interview for a professional position? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_.
+
+4\. _Unus_ is Latin for _one._ Can you use this root to construct words meaning:
+
+| (a) animal with _one_ horn: | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. |
+| --------------------------- | ------------------------------------- |
+| (b) of _one_ form:          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. |
+| (c) to make _one:_          | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. |
+| (d) _on&#x65;_&#x6E;ess:    | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. |
+| (e) _one_-wheeled vehicle:  | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_. |
+
+5\. _Annus_ is Latin for _year; verto, versus_, as you know, means _to turn._ Can you, then, explain the word _anniversary_ in terms of its roots? \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+6\. How about _universe_ and _university_ in terms of their roots (_unus_, one; _verto, versus_, to turn)?
+
+| (a) universe:   | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| --------------- | ------------------------------------ |
+| (b) university: | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+
+7\. Use _inter_-, between, to form words of the following meanings:
+
+| (a) _between_ states (_adj._):                                | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| ------------------------------------------------------------- | ------------------------------------ |
+| (b) _between_ nations (_adj._):                               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| (c) in the middle _between_ elementary and advanced (_adj._): | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| (d) to break in (_between_ people conversing):                | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| (e) _between persons_ (_adj._):                               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+
+8\. Use _intra_-, within, to form words with the following meanings (all _adjectives_):
+
+| (a) _within_ one state:                | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| -------------------------------------- | ------------------------------------ |
+| (b) _within_ one nation:               | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| (c) _within_ one’s own person or mind: | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+| (d) _within_ the muscles:              | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
+
+(_Answers in Chapter 18_)
+
+#### WORDS INFLUENCE YOUR THINKING
+
+By now, you have thoroughly explored hundreds upon hundreds of valuable words and scores upon scores of important Greek and Latin roots.
+
+As you went along you stopped at frequent intervals to say aloud, think about, work with, and recall the words you were adding to your vocabulary.
+
+By now, therefore, the words you have been learning are probably old friends of yours; they have started to influence your thinking, have perhaps begun to appear in your conversation, and have certainly become conspicuous in your reading. In short, they have been effective in making changes in your intellectual climate.
+
+Let us pause now for another checkup of the success of your study. In the next chapter, you will find a second Comprehensive Test. Take the test cold if you feel that all the material is at your fingertips; or spend a little time reviewing Chapters 9, 10, 11, and 12 if you believe such review is necessary.
+
+(_End of Session 37_)
+
+***
+
+<sup>1</sup> Incidentally, a word used with a derogatory connotation (_bitch, piggish, glutton, idiot_, etc.) is called a _pejorative_ (pe-JAWR′-Ə-tiv). _Pejorative_ is also an adjective, as in, “She spoke in _pejorative_ terms about her ex-husband.” The derivation is Latin _pejor_, worse.

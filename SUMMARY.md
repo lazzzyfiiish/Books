@@ -6,7 +6,7 @@
 * [CONTENTS](contents.md)
 * [BRIEF INTERMISSIONS](brief-intermissions.md)
 * [HOW TO USE THIS BOOK FOR MAXIMUM BENEFIT](how-to-use-this-book-for-maximum-benefit.md)
-* [Disclaimer](disclaimer.md)
+* [Disclaimer:](disclaimer.md)
 
 ## GETTING OFF TO A GOOD START <a href="#part1" id="part1"></a>
 

@@ -6,7 +6,7 @@
 | 19. _volo_                                                                             | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
 | EXAMPLE   volition                                                                     |                                    |
 | 20. _facio_ (_fec-, fic-, -fy_)                                                        | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
-| <p>EXAMPLE   benefactor<br>                  fiction<br>                  simplify</p> |                                    |
+| EXAMPLE   benefactor  fiction  simplify                                                |                                    |
 | 21. _bonus_                                                                            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |
 | EXAMPLE   bona fide                                                                    |                                    |
 | 22. _fides_                                                                            | \_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_ |

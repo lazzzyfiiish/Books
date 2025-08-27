@@ -50,6 +50,3 @@
 ## Other Books by This Author <a href="#end" id="end"></a>
 
 * [Books by Norman Lewis](end/books-by-norman-lewis.md)
-
-***
-

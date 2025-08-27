@@ -1,12 +1,12 @@
 # Table of contents
 
 * [Word Power Made Easy](README.md)
-* [Copyright](copyright.md)
-* [Dedication](dedication.md)
 * [CONTENTS](contents.md)
 * [BRIEF INTERMISSIONS](brief-intermissions.md)
-* [HOW TO USE THIS BOOK FOR MAXIMUM BENEFIT](how-to-use-this-book-for-maximum-benefit.md)
-* [Disclaimer:](disclaimer.md)
+* [Copyright](copyright.md)
+* [Dedication](dedication.md)
+* [How to Use This Book for Maximum Benefit](how-to-use-this-book-for-maximum-benefit.md)
+* [Disclaimer](disclaimer.md)
 
 ## GETTING OFF TO A GOOD START <a href="#part1" id="part1"></a>
 

@@ -2,4 +2,4 @@
 
 What is for?
 --
-I pushed some books in english i like.   To learn it
+Pushed some books in english i like.   To learn it

@@ -1,4 +1,4 @@
-# HOW TO USE THIS BOOK FOR MAXIMUM BENEFIT
+# How to Use This Book for Maximum Benefit
 
 **1. this is not a reading book…**
 

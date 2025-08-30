@@ -1,9 +1,5 @@
 # CONTENTS
 
-[_Cover_](kindle:embed:0007?mime=image/jpg)
-
-_Title Page_
-
 _Copyright_
 
 _Dedication_

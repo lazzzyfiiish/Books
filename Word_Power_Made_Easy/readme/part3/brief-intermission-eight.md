@@ -1,2 +1,0 @@
-# Brief Intermission Eight
-

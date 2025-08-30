@@ -1,6 +1,6 @@
 # Table of contents
 
-* [Word Power Made Easy](README.md)
+* [Word Power Made Easy](../)
 * [CONTENTS](contents.md)
 * [BRIEF INTERMISSIONS](brief-intermissions.md)
 * [Copyright](copyright.md)
